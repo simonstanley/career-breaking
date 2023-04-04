@@ -6,4 +6,4 @@ img_dir: /static/img
 # Build settings
 markdown: kramdown
 sass:
-    sass_dir: static/css
+    sass_dir: /static/css
