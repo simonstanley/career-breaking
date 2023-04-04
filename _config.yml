@@ -1,9 +1,10 @@
 # Site settings
-title: Jack Pointer Mackenzie
+url: https://simonstanley.github.io/career-breaking
+title: Career Breaking
 email: simon.stanley87@gmail.com
-img_dir: /static/img
+img_dir: /assets/img
 
 # Build settings
 markdown: kramdown
 sass:
-    sass_dir: /static/css
+    sass_dir: /assets/css
