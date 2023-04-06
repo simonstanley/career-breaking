@@ -1,5 +1,5 @@
 # Site settings
-url: https://simonstanley.github.io/career-breaking
+baseurl: /career-breaking
 title: Career Breaking
 email: simon.stanley87@gmail.com
 img_dir: /assets/img
