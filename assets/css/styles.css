@@ -2,4 +2,5 @@
 ---
  .current {
   color: green;
+  text-transform: uppercase;
 }
