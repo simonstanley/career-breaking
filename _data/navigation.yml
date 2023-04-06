@@ -1,9 +1,7 @@
----
----
 - name: Home
-  link: {{ site.baseurl }}
+  link: /career-breaking
 - name: About
-  link: {{ site.baseurl }}about.html
+  link: /career-breaking/about.html
 - name: Blog
-  link: {{ site.baseurl }}blog.html
+  link: /career-breaking/blog.html
    
