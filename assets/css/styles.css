@@ -2,6 +2,10 @@ body {
   font-family: "Lucida Console", "Courier New", monospace;
 }
 
+a {
+    text-decoration: none;
+}
+
 .nav-container {
   display: flex;
   background-color: DodgerBlue;
