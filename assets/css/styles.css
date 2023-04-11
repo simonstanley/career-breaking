@@ -1,4 +1,16 @@
-.current {
+.nav-current {
   color: green;
   text-transform: uppercase;
+}
+
+.nav-container {
+  display: flex;
+  background-color: DodgerBlue;
+}
+
+.nav-container > div {
+  background-color: #f1f1f1;
+  margin: 10px;
+  padding: 20px;
+  font-size: 30px;
 }
