@@ -14,7 +14,8 @@ In the meantime, the plan was to make the 160ish miles from Edinburgh by bike, w
 
 After gulping two bananas on the platform, I left Waverly station. The sun was out and the wind was low, both of which helped clear the foggy mind and raise the spirits. Day to day I'm not in the habit of taking photos, but dutifully I reminded myself before ploughing on through the city to take an opening snap.
 
-![Edinburgh Image](/career-breaking/assets/images/IMG_20230406_153546562_HDR.jpeg){:class="img-responsive"}
+![Edinburgh Image](/career-breaking/assets/images/IMG_20230406_153546562_HDR.jpeg){class="img-responsive"}
+<img src="/career-breaking/assets/images/IMG_20230406_153546562_HDR.jpeg" class="img-responsive">
 
 The journey was marked by notable potholes (I've since discovered Edinburgh is infamous for them), the crossing of the Forth road bridge and the painstakingly learnt wisdom that the top of the hill, is not the top of the hill.
 My yet to be named bike handled them all with such sturdiness and grace, I knew this to be the first chapter of a life long love affair.
