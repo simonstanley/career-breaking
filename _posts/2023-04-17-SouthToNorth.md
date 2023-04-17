@@ -13,12 +13,10 @@ In the meantime, the plan was to make the 160ish miles from Edinburgh by bike, w
 
 After gulping two bananas on the platform, I left Waverly station. The sun was out and the wind was low, both of which helped clear the foggy mind and raise the spirits. Day to day I'm not in the habit of taking photos, but dutifully I reminded myself before ploughing on through the city to take an opening snap.
 
-[Edinburgh Image]
+![Edinburgh Image](/career-breaking/assets/images/IMG_20230406_153546562_HDR.jpg){:class="img-responsive"}
 
 The journey was marked by notable potholes (I've since discovered Edinburgh is infamous for them), the crossing of the Forth road bridge and the painstakingly learnt wisdom that the top of the hill, is not the top of the hill.
 My yet to be named bike handled them all with such sturdiness and grace, I knew this to be the first chapter of a life long love affair.
-
-[Bridge image]
 
 Three and a half hours later I arrived at the campsite, around 7pm, feeling tired. This indeed was a decent leap from the usual amount of exercise I did. My "normal" life was working as a computer programmer, and so aside from the daily walk to work, my entire body was used to a pretty permanent state of rest.
 It being April, the campsite was not busy. As I walked to my pitch, I clocked the two other tents occupying the field. Next to my neighbour's tent stood a bicycle with well packed panniers hanging off just about every inch of the frame. It's owner emerged and clocked me wheeling my own carriage in his direction.
@@ -77,33 +75,33 @@ Simon left us to it with a fond farewell and I hope a little more inspiration to
 We set off early, 9am, next day after a better night's sleep. The next destination was unknown exactly, but all we had to do was follow the route 1 route and arrive somewhere just shy of Aberdeen. The day passed by nicely. At some point mid morning I realised that traveling like this, by bike, was now my new favourite way to get around. I have no explicit reason why, but it's hard to ignore the perpetually pleasant feeling that comes from gliding around on a well functioning bicycle.
 The blissful travelling was occasionally jolted by a pang of nerves as I'd remember the unknown of what was in-store upon arrival. Please don't let them be crazy. 6 weeks is not a long time, but it's long enough to suffer if I found the hosts difficult. I'd take a breath and look at the wonderful scenery to bring myself out from the spiralling hole that we call worry.
 
-[Nice image]
+Nice image
 
 The journey up the east coast was through the land of farms. You may assume that to mean a monotonous landscape, but the track took us through woodlands, country roads, quaint towns, and a multitude of fields being actively managed in some way, due the time of year. As well as this I passed three or four of what are now my dream homes. One in particular, perched atop a hill looking down into the bay of Montrose had chickens, vegetable plots, fruit trees and arrays of daffodils lining the garden walls, all coloured in by the Scottish sunshine, painting the ideal country home.
 
 Beyond Montrose we stopped briefly along the way at the Den finella waterfall, just past St Cyrus, and admired the mighty plummet undertaken by the Garvock Burn.
 
-[Waterfall image]
+Waterfall image
 
 When it came to finding a spot to sleep, the acre's of farmlands did become a hindrance. We'd set our eyes peeled for anywhere that looked suitable but nothing much was showing up. It was around 5pm, so still plenty of daylight left, meaning plonking ourselves down in some open field might feel a bit too obvious. The route took us closer to the coast and I felt an opportunity. Coastal paths and/or beaches tend to be public land, which I assumed was fair game given the right to roam. We found a track that led towards the sea and held our breathes for a camp-able spot. As we reached the fence line, there on the other side, set nicely in from the edge of the cliffs was a purpose built hut for viewing the plethora of seabirds swarming around the coastline. We'd only been camping two nights but already the prospect of an indoor shelter to settle in for the night was like looking upon the Bellagio after a trek through the dessert.
 
-[Cabin image]
+Cabin image
 
 A few folk were still around, viewing the birds nesting in the cliffs, and they did not to bat an eye as we hoisted our gear over the fence and towards the hut. Our intention was clear, and they had nothing for us but an admirable smile. This is the kind of attitude I unfortunately do not assume people to have. Maybe I've grown up around too many people complaining about stuff, but so far here in Scotland, it seems everyone is just, well, nice!
 
 I enjoyed my pasta and peanut butter supper with a can of beer, whilst admiring the busy birds surf the onshore winds with precision and mastery. Following this, my bowels made the call that this was to be the place I take my first wild poo of the trip. And what a poo it was. I found my spot to squat just behind some thistle not 5 meters from the edge. I eased it all out into the purpose dug hole with great pleasure as I gazed down at the beautiful Aberdeenshire cliffs and out to the North Sea.
 
-[Cliffs image]
+Cliffs image
 
 As planned we set up shop inside the viewing hut, safely sheltered from the winds, and found it to be very comfortable indeed. Once again my night's sleep went up a notch.
 
-[Sleeping image]
+Sleeping image
 
 We woke up to Easter Sunday. I took a look but no eggs had been left. I felt a little short changed when I stepped outside for the morning wee and saw a bunny hopping off in the opposite direction.
 Today was the last full day of cycling. The plan was to arrive at the small holding on the Monday, preferably midday-ish. This meant the same again, continue along route 1 through Aberdeen and onwards north. I failed to mention that route 1 just so happened to pass by my destination within a mile or two. It was too perfect.
 Once again Rouven's steady pace set the tempo for the day and we cruised through Aberdeen, stopping for lunch. Beyond this we covered a number miles cruising along a flat cycle track we later confirmed was an old railway track.
 
-[Cycling image]
+Cycling image
 
 The day ended again with the dreaded hunt for a decent spot to camp. Rouven spied a nice line of woodland in a valley and we pushed our bikes in to take a closer look. There was a clearing that looked perfectly suitable, albeit some serious removal of ground fodder required, but it seemed neither of us were in a hurry to unpack and set up. There was an unease in the air. This was a fairly open woodland, slightly tucked away but we were still visible from the road, particularly in the daylight. Again we'd stopped around 5pm and the realisation of having four hours to kill, in a fairly exposed spot seemed to drive our hesitation. I figured this was just all part of it and motioned to except our fate and begin preparing the ground, when Rouven, inspecting his phone closely, spoke up.
 "Zair iz a campsite around ten miles north. Vot do you think of vee head zair?"
@@ -114,7 +112,7 @@ The ten miles north was also a welcome bonus as it meant ten miles off tomorrow,
 We pushed on and arrived at Ythan Valley Campsite an hour later.
 To call it a campsite is a push. In my opinion it's something beyond that. Liddy, the owner welcomed us in with open arms and a cup of tea. It turns out we were in fact to be pitching up in her (large) back garden. We were her first guests of the season and had the whole place to ourselves. Her grass was luscious and flat, and she choose us a spot sheltered from the prevailing wind. She then pointed us to the wash room, which included free hot showers. I had not had any kind of shower since London and although I'll argue I did not smell, and did not desperately need one, I bloody well had one. It would be like turning down a swim in a tub of jelly beans just because you're not hungry. The whole experience was a real treat and although back in the tent, the sleep-o-dar went up once again.
 
-[Liddy image]
+Liddy image
 
 A nomadic camper's worst hindrance is rain. Keeping everything dry as you stow it away takes ten times longer and packing a wet tent feels somehow sinful. We had been hit by rain twice so far, both times in the night, and both times, the rain had stopped right on que as we roused from our sleeping bags.
 For a first timer like myself, it's hard to gauge what useful equipment to bring and you soon realise what you've missed. For me it was a peg to hold back the tent door (a minor floor in the tent design) and a lighter. But these were easily remedied. On the other hand, there is equipment you do bring that you had no idea would be so useful. My top recommendation for any prospecting bike backers is a sponge. I took great pleasure methodically wiping off the droplets of rain that covered my little tent and squeezing out the would be weight onto the grass. It's quite remarkable how much water there actually was.
