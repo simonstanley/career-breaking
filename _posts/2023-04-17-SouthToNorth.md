@@ -1,5 +1,7 @@
-I woke up in London alone. My good friend and gracious host Pinky had left for work leaving me with an empty flat.
-The night before we'd made our way to the pub for some farewell drinks but ramped this up with a pub quiz. In a dangerous turn of events, we won. The prize resembled that of a fair ground raffle where by we were granted first choice from a table of booze. I opted for a mighty fine looking Rioja. I had no intention on weighing my luggage down further with it so we headed back to his flat and saw it off into the early hours.
+---
+layout: post
+---
+I woke up in London alone. My good friend and gracious host Pinky had left for work leaving me with an empty flat.  The night before we'd made our way to the pub for some farewell drinks but ramped this up with a pub quiz. In a dangerous turn of events, we won. The prize resembled that of a fair ground raffle where by we were granted first choice from a table of booze. I opted for a mighty fine looking Rioja. I had no intention on weighing my luggage down further with it so we headed back to his flat and saw it off into the early hours.
 
 I opened my eyes tentatively next morning, waiting for the inevitable throb to kick in and it's good friend regret. But nothing. In fact I felt pretty good. The hangover Gods had spared me their rath on the best day possible. I offered up my thanks and praise with a pint of "make sure" water and began getting ready.
 
