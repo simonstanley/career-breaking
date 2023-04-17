@@ -22,3 +22,8 @@ a {
 .nav-container > div > a {
   color: Green;
 }
+
+.img-responsive {
+  width: 100%;
+  height: auto;
+}
