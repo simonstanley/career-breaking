@@ -4,20 +4,24 @@ title: South to North
 ---
 I woke up in London alone. My good friend and gracious host Pinky had left for work leaving me with an empty flat.  The night before we'd made our way to the pub for some farewell drinks but ramped this up with a pub quiz. In a dangerous turn of events, we won. The prize resembled that of a fair ground raffle where by we were granted first choice from a table of booze. I opted for a mighty fine looking Rioja. I had no intention on weighing my luggage down further with it so we headed back to his flat and saw it off into the early hours.
 
-I opened my eyes tentatively next morning, waiting for the inevitable throb to kick in and it's good friend regret. But nothing. In fact I felt pretty good. The hangover Gods had spared me their rath on the best day possible. I offered up my thanks and praise with a pint of "make sure" water and began getting ready.
+I opened my eyes tentatively next morning, waiting for the inevitable throb to kick in and it's good friend regret to follow up close behind. But nothing. In fact I felt pretty good. The hangover Gods had spared me their rath on the best day possible and so I offered up my thanks and praise with a pint of "make sure" water.
 
 With my bike loaded up like a pack horse, I made the swift cycle down to Kings Cross station and caught the 10:30 train to Edinburgh. It seems I didn't escape entirely unpunished for the evening's shenanigans as I spent most of the four and a half hour journey asleep. Crossing the Scottish border with forty minutes to arrival, I awoke. There is a special kind of grog one feels after travel sleep. The seated position that leaves the head swinging around under its own weight somehow hinders a restful slumber, and so, wiping sleep from my eyes, I stared out at the passing coastline and tried not to think about the looming thirty mile cycle.
 
-My ultimate destination was a small holding called the Wood of Shaws in north Aberdeenshire (near Banff) where I'd volunteer for six weeks. The circumstances of my stay and the company I'd be keeping were relatively unknown. I'd spoken with Rosie and Mike, my hosts for the stay, back in November and although my impression was good, there is never a guarantee on sanity when comes to online interaction. But there was no turning back now, I was on my way, and I would find out my fate in a matter of days.
+My ultimate destination was a small holding called the Wood of Shaws in north Aberdeenshire (near Banff), where I'd volunteer for six weeks. The exact circumstances of my stay and the company I'd be keeping were relatively unknown. I'd spoken with Rosie and Mike, my hosts for the stay, back in November and although my impression was good, there is never a guarantee on sanity when comes to online interaction. But there was no turning back now, I was on my way, and I would find out my fate in a matter of days.
 
-In the meantime, the plan was to make the 160ish miles from Edinburgh by bike, wild camping along the way. In Scotland they have the "right to roam", that is, it's legal to wild camp. Whether that applies to cities, suburbs, farmland etc, I don't know but either way, being from the south of England, I would be aghast to feel myself camping somewhere in the way. From my brief glance at satellite imagery, it appeared the type of wild I'd feel comfortable camping in was beyond the reach of Edinburgh in the five hours of daylight I'd have to get there. Therefore, my first stop was a campsite, thirty miles north in Kinross.
+In the meantime, the plan was to make the 160ish miles from Edinburgh by bike, wild camping along the way. In Scotland they have the "right to roam", that is, it's legal to wild camp. Whether that applies to cities, suburbs, farmland etc, I don't know but regardless, being from the south of England, I would be aghast to feel myself camping somewhere in the way. From my brief glance at satellite imagery, it appeared the type of wild I'd feel comfortable camping in was beyond the reach of Edinburgh in the five hours of daylight I'd have to get there. Therefore, my first stop was a campsite, thirty miles north in Kinross.
 
-After gulping two bananas on the platform, I left Waverly station. The sun was out and the wind was low, both of which helped clear the foggy mind and raise the spirits. Day to day I'm not in the habit of taking photos, but dutifully I reminded myself before ploughing on through the city to take an opening snap.
+After gulping two bananas on the platform, I left Waverly station. The sun was out and the wind was low, both of which helped clear the foggy mind and raise the spirits. Day to day I'm not in the habit of taking photos, but dutifully I reminded myself before ploughing on through the city to take an opening snap...
 
 <img src="/career-breaking/assets/images/IMG_20230406_153546562_HDR.jpeg" class="img-responsive">
 
 The journey was marked by notable potholes (I've since discovered Edinburgh is infamous for them), the crossing of the Forth road bridge and the painstakingly learnt wisdom that the top of the hill, is not the top of the hill.
 My yet to be named bike handled them all with such sturdiness and grace, I knew this to be the first chapter of a life long love affair.
+
+Practising my selfies crossing the Forth road bridge
+<img src="/career-breaking/assets/images/IMG_20230406_165158480_HDR.jpeg" class="img-responsive">
+<img src="/career-breaking/assets/images/IMG_20230406_165211376_HDR.jpeg" class="img-responsive">
 
 Three and a half hours later I arrived at the campsite, around 7pm, feeling tired. This indeed was a decent leap from the usual amount of exercise I did. My "normal" life was working as a computer programmer, and so aside from the daily walk to work, my entire body was used to a pretty permanent state of rest.
 It being April, the campsite was not busy. As I walked to my pitch, I clocked the two other tents occupying the field. Next to my neighbour's tent stood a bicycle with well packed panniers hanging off just about every inch of the frame. It's owner emerged and clocked me wheeling my own carriage in his direction.
@@ -26,8 +30,13 @@ This moment was a point of conflict for me. I'm an introvert and so the default 
 "Uur yes, zat is correct. My name iz Rouven" he replied in a thick German accent.
 He had long dark hair tied back in a ponytail, stood a few inches smaller than myself and wore perfectly round glasses. He was dressed head to toe in cycling gear, the Spandex stuff that serious cyclists wear, and although all in all slender, had a very neat pot belly protruding out the front.
 What this says about me I don't know but I found it a relief to discover he was somewhat awkward. Well, not awkward, rather, not quite so fluent at conversation as your everyday confident person. He would answer all the questions I could throw at him with passion and gusto, but seemed at a loss when it came to igniting a topic of his own. The key discovery however was that we were both heading north. I left it at that, not broaching the prospect of joining forces as this would be a step too far for my social capacity. And regardless, we were planning different routes anyway. We said our good nights and I settled into my nice new tent (for the first time) and enjoyed possibly the best Pot Noddle I've ever had.
+
+The tent ready for it's first night
+<img src="/career-breaking/assets/images/IMG_20230406_194626524.jpeg" class="img-responsive">
+Well earned supper
+<img src="/career-breaking/assets/images/IMG_20230406_200341749_HDR.jpeg" class="img-responsive">
  
-The route I had planned was through the Cairngorms. For those that don't know, which included me up until a couple of weeks before leaving, the Cairngorms is a mountain range in east Scotland where skiing takes place. I'd planned this route solely on the basis that looking at satellite imagery, it looked wild. If I'm going to cycle through Scotland, I want to see the rugged landscapes it's famous for with free reign to stop and camp wherever I like. When I was informed it would perhaps be tough going, especially for a first timer fresh from the office chair, I sort of flinched. But, following the well received wisdom from a colleague, "You'll be alright. It'll be hard but you'll adapt", a very apt statement for the ethos of the whole year, I held firm to my plans... That was until my first night's "sleep".
+The route I had planned was through the Cairngorms. For those that don't know, which included me up until a couple of weeks before leaving, the Cairngorms is a mountain range in east Scotland where skiing takes place. I'd planned this route solely on the basis that looking at satellite imagery, it looked wild. If I'm going to cycle through Scotland, I want to see the rugged landscapes it's famous for, with free reign to stop and camp wherever I like. When I was informed it would perhaps be tough going, especially for a first timer fresh from the office chair, I sort of flinched. But, following the well received wisdom from a colleague, "You'll be alright. It'll be hard but you'll adapt", a very apt statement for the ethos of the whole year, I held firm to my plans... That was until my first night's "sleep".
 
 The campsite was at no significant altitude, but a clear sky left the temperature to drop over night. I had justified not splashing out on a fancy sleeping bag by bringing thermals (and other layers) with me. Super sleepy after my lovely Pot Noddle, I wrapped myself up and tucked myself in at 9pm.
 I must say, I woke up really rather refreshed. The first thing I noticed though was the cold. It seemed for all my layers, the body heat had found a way to leak away from me. I winced open an eye to see it was still dark. No bother I thought, I felt rested and I'm quite happy to head off for a nice early start. I fumbled around for my phone to check the time, 10pm... Oh.
@@ -53,9 +62,16 @@ I soon discovered he was also a cautious fellow. As I pedaled steadily in his wa
 "Car up ahead", he'd shout, the car coming towards us, clear as day.
 "Incline up ahead, 5 percent", the slope up ahead, clear as day.
 At each passing car he would stop dead on the verge and wave it past. Fair enough for the narrower roads, but when I say you could get a bus through that, I'm not joking.
-Every single junction was clearly indicated with an sturdy outstretched arm, long before we reached the junction and regardless of the presence of cars. We were following a designated cycle route (route 1 which runs from Dover to Tain), that took us through barren tracks with no one in sight for miles, but this had no baring on the conviction and structure of that outstretched arm.
+Every single junction was clearly indicated with an sturdy outstretched arm, long before we reached the junction and regardless of the presence of cars. We were following a designated cycle route (route 1 of the national cycle network which runs from Dover to Tain), that took us through barren tracks with no one in sight for miles, but this had no baring on the conviction and structure of that outstretched arm.
 
-The route was relatively flat, the weather was fine, and I can honestly say, with Rouven's guidance I did not break a sweat. Instead I had time and energy to enjoy my surroundings and bask in the new life I'd thrown myself into. We managed our forty miles in good time and arrived in Dundee late afternoon, where we pulled into a Sainsbury's for supplies. 
+The route was relatively flat, the weather was fine, and I can honestly say, with Rouven's guidance I did not break a sweat. Instead I had time and energy to enjoy my surroundings and bask in the new life I'd thrown myself into.
+
+A couple miles into day 2
+<img src="/career-breaking/assets/images/IMG_20230407_113124244_HDR.jpeg" class="img-responsive">
+Riding across the Tay bridge into Dundee
+<img src="/career-breaking/assets/images/IMG_20230407_162534797.jpeg" class="img-responsive">
+
+We managed our forty miles in good time and arrived in Dundee late afternoon, where we pulled into a Sainsbury's for supplies. 
 Another enormous benefit of cycling together was security. With our lives contained on the bikes, having one to keep guard while the other performs necessary duties was invaluable. As I emerged from the supermarket Rouven was stood talking to a gentleman dressed in bright yellow high vis, straddling a bike of his own.
 "Hello" I said, introducing myself.
 "Just admiring your bikes" he replied in his gentle Scottish accent, "you guys bike packing?"
@@ -73,30 +89,36 @@ This all made me quite uneasy. I'm a live and let live guy, people drive cars, i
 We arrived at the scout centre, and kudos to Rouven, found a wonderful grove of trees tucked away, perfect for some sneaky camping.
 Simon left us to it with a fond farewell and I hope a little more inspiration to bike pack himself. I'd love one day to see him again on the road, with a tailback of beeping cars in tow, and big smile on his face.
 
+Our spot in the scout's camping grounds
+<img src="/career-breaking/assets/images/IMG_20230407_201541145.jpeg" class="img-responsive">
+
 We set off early, 9am, next day after a better night's sleep. The next destination was unknown exactly, but all we had to do was follow the route 1 route and arrive somewhere just shy of Aberdeen. The day passed by nicely. At some point mid morning I realised that traveling like this, by bike, was now my new favourite way to get around. I have no explicit reason why, but it's hard to ignore the perpetually pleasant feeling that comes from gliding around on a well functioning bicycle.
 The blissful travelling was occasionally jolted by a pang of nerves as I'd remember the unknown of what was in-store upon arrival. Please don't let them be crazy. 6 weeks is not a long time, but it's long enough to suffer if I found the hosts difficult. I'd take a breath and look at the wonderful scenery to bring myself out from the spiralling hole that we call worry.
 
-Nice image
+National cycle network sign post for route 1
+<img src="/career-breaking/assets/images/IMG_20230408_110132660_HDR.jpeg" class="img-responsive">
+Some nice views
+<img src="/career-breaking/assets/images/IMG_20230408_143135446_HDR.jpeg" class="img-responsive">
 
 The journey up the east coast was through the land of farms. You may assume that to mean a monotonous landscape, but the track took us through woodlands, country roads, quaint towns, and a multitude of fields being actively managed in some way, due the time of year. As well as this I passed three or four of what are now my dream homes. One in particular, perched atop a hill looking down into the bay of Montrose had chickens, vegetable plots, fruit trees and arrays of daffodils lining the garden walls, all coloured in by the Scottish sunshine, painting the ideal country home.
 
-Beyond Montrose we stopped briefly along the way at the Den finella waterfall, just past St Cyrus, and admired the mighty plummet undertaken by the Garvock Burn.
+Daffodil farms
+<img src="/career-breaking/assets/images/IMG_20230408_163335371_HDR.jpeg" class="img-responsive">
 
-Waterfall image
+Beyond Montrose we stopped briefly along the way at the Den finella waterfall, just past St Cyrus, and admired the mighty plummet undertaken by the Garvock Burn.
+<img src="/career-breaking/assets/images/IMG_20230408_150432174_HDR.jpeg" class="img-responsive">
 
 When it came to finding a spot to sleep, the acre's of farmlands did become a hindrance. We'd set our eyes peeled for anywhere that looked suitable but nothing much was showing up. It was around 5pm, so still plenty of daylight left, meaning plonking ourselves down in some open field might feel a bit too obvious. The route took us closer to the coast and I felt an opportunity. Coastal paths and/or beaches tend to be public land, which I assumed was fair game given the right to roam. We found a track that led towards the sea and held our breathes for a camp-able spot. As we reached the fence line, there on the other side, set nicely in from the edge of the cliffs was a purpose built hut for viewing the plethora of seabirds swarming around the coastline. We'd only been camping two nights but already the prospect of an indoor shelter to settle in for the night was like looking upon the Bellagio after a trek through the dessert.
 
-Cabin image
+Our luxury accommodation
+<img src="/career-breaking/assets/images/IMG_20230408_175341813_HDR.jpeg" class="img-responsive">
 
-A few folk were still around, viewing the birds nesting in the cliffs, and they did not to bat an eye as we hoisted our gear over the fence and towards the hut. Our intention was clear, and they had nothing for us but an admirable smile. This is the kind of attitude I unfortunately do not assume people to have. Maybe I've grown up around too many people complaining about stuff, but so far here in Scotland, it seems everyone is just, well, nice!
+A few folk were still around, viewing the birds nesting in the cliffs, and they did not to bat an eye as we hoisted our gear over the fence and towards the lodge. Our intention was clear, and they had nothing for us but an admirable smile. This is the kind of attitude I unfortunately do not assume people to have. Maybe I've grown up around too many people complaining about stuff, but so far here in Scotland, it seems everyone is just, well, nice!
 
 I enjoyed my pasta and peanut butter supper with a can of beer, whilst admiring the busy birds surf the onshore winds with precision and mastery. Following this, my bowels made the call that this was to be the place I take my first wild poo of the trip. And what a poo it was. I found my spot to squat just behind some thistle not 5 meters from the edge. I eased it all out into the purpose dug hole with great pleasure as I gazed down at the beautiful Aberdeenshire cliffs and out to the North Sea.
-
-Cliffs image
+<img src="/career-breaking/assets/images/IMG_20230408_171704827_HDR.jpeg" class="img-responsive">
 
 As planned we set up shop inside the viewing hut, safely sheltered from the winds, and found it to be very comfortable indeed. Once again my night's sleep went up a notch.
-
-Sleeping image
 
 We woke up to Easter Sunday. I took a look but no eggs had been left. I felt a little short changed when I stepped outside for the morning wee and saw a bunny hopping off in the opposite direction.
 Today was the last full day of cycling. The plan was to arrive at the small holding on the Monday, preferably midday-ish. This meant the same again, continue along route 1 through Aberdeen and onwards north. I failed to mention that route 1 just so happened to pass by my destination within a mile or two. It was too perfect.
