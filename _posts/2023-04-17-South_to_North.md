@@ -83,8 +83,11 @@ Every junction had the intended manouver indicated clearly with a sturdy outstre
 
 The route was relatively flat, the weather was fine, and I can honestly say, with Rouven's guidance I did not break a sweat. Instead I had time and energy to enjoy my surroundings and bask in the new life I'd thrown myself into.
 
+<br />
 A couple miles into day 2
 <img src="/career-breaking/assets/images/IMG_20230407_113124244_HDR.jpeg" class="img-responsive">
+
+<br />
 Riding across the Tay bridge into Dundee
 <img src="/career-breaking/assets/images/IMG_20230407_162534797.jpeg" class="img-responsive">
 
