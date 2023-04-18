@@ -88,7 +88,7 @@ This all made me quite uneasy. I'm a live and let live guy, people drive cars, i
 We arrived at the scout centre, and kudos to Rouven, found a wonderful grove of trees tucked away, perfect for some sneaky camping.
 Simon left us to it with a fond farewell and I hope a little more inspiration to bike pack himself. I'd love one day to see him again on the road, with a tailback of beeping cars in tow, and big smile on his face.
 
-Our spot in the scout's camping grounds
+Rouven having dinner at our spot in the scout's camping grounds
 <img src="/career-breaking/assets/images/IMG_20230407_201541145.jpeg" class="img-responsive">
 
 We set off early, 9am, next day after a better night's sleep. The next destination was unknown exactly, but all we had to do was follow the route 1 route and arrive somewhere just shy of Aberdeen. The day passed by nicely. At some point mid morning I realised that traveling like this, by bike, was now my new favourite way to get around. I have no explicit reason why, but it's hard to ignore the perpetually pleasant feeling that comes from gliding around on a well functioning bicycle.
@@ -118,6 +118,7 @@ I enjoyed my pasta and peanut butter supper with a can of beer, whilst admiring 
 <img src="/career-breaking/assets/images/IMG_20230408_171704827_HDR.jpeg" class="img-responsive">
 
 As planned we set up shop inside the viewing hut, safely sheltered from the winds, and found it to be very comfortable indeed. Once again my night's sleep went up a notch.
+<img src="/career-breaking/assets/images/IMG_20230408_195246110_HDR.jpeg" class="img-responsive">
 
 We woke up to Easter Sunday. I took a look but no eggs had been left. I felt a little short changed when I stepped outside for the morning wee and saw a bunny hopping off in the opposite direction.
 Today was the last full day of cycling. The plan was to arrive at the small holding on the Monday, preferably midday-ish. This meant the same again, continue along route 1 through Aberdeen and onwards north. I failed to mention that route 1 just so happened to pass by my destination within a mile or two. It was too perfect.
@@ -130,6 +131,9 @@ The day ended again with the dreaded hunt for a decent spot to camp. Rouven spie
 "Zair iz a campsite around ten miles north. Vot do you think of vee head zair?"
 Music to my ears. Without hesitation I concurred. "Yep, let's do it!".
 We jumped back on the bikes and gleefully cycled towards what felt like a guilty pleasure.
+
+The spot we escaped from
+<img src="/career-breaking/assets/images/IMG_20230409_170343567_HDR.jpeg" class="img-responsive">
 
 The ten miles north was also a welcome bonus as it meant ten miles off tomorrow, and I for one, after a very flat day on the old rail tracks had plenty of energy left.
 We pushed on and arrived at Ythan Valley Campsite an hour later.
@@ -145,6 +149,9 @@ As we packed the sun broke through and once again the daytime weather was on our
 
 Rouven by this stage was suffering a little. His previous tours had been around North West Germany and the Netherlands, i.e flat lands. The hills we'd contended with so far were fairly minor by English standards and near on horizontal by Scottish ones. His journey beyond my stop was a circuit west to Inverness, then back down through the Cairngorms. He was well aware from his research what he had in store and my only reassurance for the completion was his patience. Never the less, his knees were beginning to suffer and he asked if it would be possible to rest a day at the small holding. I messaged Rosie with the request and she confirmed straight away with no questions asked. I knew now at least she was kind, the crazy question still stood, but was now less important.
 
+Fives short we stopped in Turriff for lunch. A fitting signpost marked where it all began
+<img src="/career-breaking/assets/images/IMG_20230410_142724867_HDR.jpeg" class="img-responsive">
+
 The final turn onto the final road saw us pedalling along one side of a valley. Gently meandering down its centre was the river Devron, cutting through the fields and farmland flanking its banks. At last we arrived, signpost reading "The Wood of Shaws", we turned into the long driveway down towards the house and were met with a torrent of barks from the three dogs running along the fence line with us. I spied the gentleman standing in the yard who greeted us with a wave.
 "You must be Mike" I called
 "Indeed, if you swing your bikes round to the courtyard I'll meet you there".
@@ -153,3 +160,6 @@ Entrance to the Wood of Shaws
 <img src="/career-breaking/assets/images/IMG_20230418_105345968_HDR.jpeg" class="img-responsive">
 
 And so ended the journey from South to North. My life on the road came to an abrupt ending as dismounted my bike and prepared for the first major chapter of this year. There waiting for us at the back door was Rosie, wearing a big smile.
+
+Map our the stops
+<img src="/career-breaking/assets/images/Screenshot_20230415_212740~2.png" class="img-responsive">
