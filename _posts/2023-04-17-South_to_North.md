@@ -4,7 +4,7 @@ title: South to North
 ---
 I woke up in London alone. My good friend and gracious host Pinky had left for work leaving me with an empty flat.  The night before we'd made our way to the pub for some farewell drinks but ramped this up with a pub quiz. In a dangerous turn of events, we won. The prize resembled that of a fair ground raffle where by we were granted first choice from a table of booze. I opted for a mighty fine looking Rioja. I had no intention on weighing my luggage down further with it so we headed back to his flat and saw it off into the early hours.
 
-I opened my eyes tentatively next morning, waiting for the inevitable throb to kick in and it's good friend regret to follow up close behind. But nothing. In fact I felt pretty good. The hangover Gods had spared me their rath on the best day possible and so I offered up my thanks and praise with a pint of "make sure" water.
+I opened my eyes tentatively next morning, waiting for the inevitable throb to kick in and its good friend regret to follow up close behind. But nothing. In fact I felt pretty good. The hangover Gods had spared me their rath on the best day possible and so I offered up my thanks and praise with a pint of "make sure" water.
 
 With my bike loaded up like a pack horse, I made the swift cycle down to Kings Cross station and caught the 10:30 train to Edinburgh. It seems I didn't escape entirely unpunished for the evening's shenanigans as I spent most of the four and a half hour journey asleep. Crossing the Scottish border with forty minutes to arrival, I awoke. There is a special kind of grog one feels after travel sleep. The seated position that leaves the head swinging around under its own weight somehow hinders a restful slumber, and so, wiping sleep from my eyes, I stared out at the passing coastline and tried not to think about the looming thirty mile cycle.
 
@@ -25,7 +25,7 @@ Practising my selfies crossing the Forth road bridge
 
 Three and a half hours later I arrived at the campsite, around 7pm, feeling tired. This indeed was a decent leap from the usual amount of exercise I did. My "normal" life was working as a computer programmer, and so aside from the daily walk to work, my entire body was used to a pretty permanent state of rest.
 
-It being April, the campsite was not busy. As I walked to my pitch, I clocked the two other tents occupying the field. Next to my neighbour's tent stood a bicycle with well packed panniers hanging off just about every inch of the frame. It's owner emerged and clocked me wheeling my own carriage in his direction.
+It being April, the campsite was not busy. As I walked to my pitch, I clocked the two other tents occupying the field. Next to my neighbour's tent stood a bicycle with well packed panniers hanging off just about every inch of the frame. Its owner emerged and clocked me wheeling my own carriage in his direction.
 
 This moment was a point of conflict for me. I'm an introvert and so the default preference I just can't shake is always for solitude, particularly when it comes to people I don't know. It's somewhat of a bug bare of mine as I'm most happy around people and I delved into this year knowing full well, and embracing the fact, I'd be bombarded with meeting new folk. I didn't allow myself to overthink it and threw up a hand with a friendly "Hello". The young man approached and I introduced myself.
 
@@ -37,7 +37,7 @@ He had long dark hair tied back in a ponytail, stood a few inches smaller than m
 What this says about me I don't know but I found it a relief to discover he was somewhat awkward. Well, not awkward, rather, not quite so fluent at conversation as your everyday confident person. He would answer all the questions I could throw at him with passion and gusto, but seemed at a loss when it came to igniting a topic of his own. The key discovery however was that we were both heading north. I left it at that, not broaching the prospect of joining forces as this would be a step too far for my social capacity. And regardless, we were planning different routes. We said our good nights and I settled in to my nice new tent (for the first time) and enjoyed possibly the best Pot Noddle I've ever had.
 
 <br />
-The tent ready for it's first night
+The tent ready for its first night
 <img src="/career-breaking/assets/images/IMG_20230406_194626524.jpeg" class="img-responsive">
 
 <br />
@@ -178,7 +178,7 @@ The spot we escaped from
 
 The ten miles north was also a welcome bonus as it meant ten miles off tomorrow, and I for one, after a very flat day on the old rail tracks had plenty of energy left. We pushed on and arrived at Ythan Valley Campsite an hour later.
 
-To call it a campsite is a push. In my opinion it's something beyond that. Liddy, the owner welcomed us in with open arms and gratefully recieved a cup of tea. It turns out we were in fact to be pitching up in her (large) back garden. We were her first guests of the season and had the whole place to ourselves. Her grass was luscious and flat, and she pointed us to a spot sheltered from the prevailing wind. She then showed us to the wash room, which included a hot shower. I had not had any kind of shower since London and although I'll argue I did not smell, and did not desperately need one, I bloody well had one. It would be like turning down a swim in a tub of jelly beans just because you're not hungry. The whole experience was a real treat and although back in the tent, the sleep-o-dar went up once again.
+To call it a campsite is a push. In my opinion it's something beyond that. Liddy, the owner welcomed us in with open arms and a gratefully recieved cup of tea. It turns out we were in fact to be pitching up in her (large) back garden. We were her first guests of the season and had the whole place to ourselves. Her grass was luscious and flat, and she pointed us to a spot sheltered from the prevailing wind. She then showed us to the wash room, which included a hot shower. I had not had any kind of shower since London and although I'll argue I did not smell, and did not desperately need one, I bloody well had one. It would be like turning down a swim in a tub of jelly beans just because you're not hungry. The whole experience was a real treat and although back in the tent, the sleep-o-dar went up once again.
 
 <br />
 Our spot at Ythan Valley Campsite / back garden
