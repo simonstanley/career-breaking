@@ -79,7 +79,7 @@ I soon discovered he was also a cautious fellow. As I pedaled steadily in his wa
 "Incline up ahead, 5 percent", the slope up ahead, clear as day.
 
 At each passing car he would stop dead on the verge and wave it past. Fair enough for the narrower roads, but when I say you could get a bus through that, I'm not joking.<br />
-Every junction had the intended manouver indicated clearly with a sturdy outstretched arm, long before we reached the junction, and regardless of the presence of cars. We were following a designated cycle route (route 1 of the national cycle network which runs from Dover to Tain), that took us through barren tracks with no one in sight for miles, but this had no baring on the conviction and structure of that outstretched arm.
+Every junction had the intended manouver indicated clearly with a sturdy outstretched arm, long before we reached the junction, and regardless of the presence of cars. We were following a designated cycle route (route 1 of the national cycle network which runs from Dover to Tain), which took us through barren tracks with no one in sight for miles, but this had no baring on the conviction and structure of that outstretched arm.
 
 The route was relatively flat, the weather was fine, and I can honestly say, with Rouven's guidance I did not break a sweat. Instead I had time and energy to enjoy my surroundings and bask in the new life I'd thrown myself into.
 
