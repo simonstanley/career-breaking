@@ -132,10 +132,10 @@ National cycle network sign post for route 1
 Some nice views
 <img src="/career-breaking/assets/images/IMG_20230408_143135446_HDR.jpeg" class="img-responsive">
 
-The journey up the east coast was through the land of farms. You may assume that to mean a monotonous landscape, but the track took us through woodlands, country roads, quaint towns, and a multitude of fields being actively managed in some way, due the time of year. As well as this I passed three or four of what are now my dream homes. One in particular, perched atop a hill looking down into the bay of Montrose had chickens, vegetable plots, fruit trees and arrays of daffodils lining the garden walls, all coloured in by the Scottish sunshine, painting the ideal country home.
+The journey up the east coast was through the land of farms. You may assume that to mean a monotonous landscape, but the track took us through woodlands and beaches, country roads and A roads, quaint towns and cities. As well as this I passed three or four of what are now my dream homes. One in particular, perched atop a hill looking down into the bay of Montrose had chickens, vegetable plots, fruit trees and arrays of daffodils lining the dry stone walls, all coloured in by the Scottish sunshine, painting the ideal country home.
 
 <br />
-Daffodil farms
+Even the farms had their quirks. This was for Daffodils
 <img src="/career-breaking/assets/images/IMG_20230408_163335371_HDR.jpeg" class="img-responsive">
 
 Beyond Montrose we stopped briefly along the way at the Den finella waterfall, just past St Cyrus, and admired the mighty plummet undertaken by the Garvock Burn.
