@@ -21,7 +21,6 @@ My yet to be named bike handled them all with such sturdiness and grace, I knew 
 
 Practising my selfies crossing the Forth road bridge
 <img src="/career-breaking/assets/images/IMG_20230406_165158480_HDR.jpeg" class="img-responsive">
-<img src="/career-breaking/assets/images/IMG_20230406_165225067_HDR.jpeg" class="img-responsive">
 
 Three and a half hours later I arrived at the campsite, around 7pm, feeling tired. This indeed was a decent leap from the usual amount of exercise I did. My "normal" life was working as a computer programmer, and so aside from the daily walk to work, my entire body was used to a pretty permanent state of rest.
 It being April, the campsite was not busy. As I walked to my pitch, I clocked the two other tents occupying the field. Next to my neighbour's tent stood a bicycle with well packed panniers hanging off just about every inch of the frame. It's owner emerged and clocked me wheeling my own carriage in his direction.
