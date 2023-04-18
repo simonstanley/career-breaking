@@ -29,16 +29,18 @@ It being April, the campsite was not busy. As I walked to my pitch, I clocked th
 
 This moment was a point of conflict for me. I'm an introvert and so the default preference I just can't shake is always for solitude, particularly when it comes to people I don't know. It's somewhat of a bug bare of mine as I'm most happy around people and I delved into this year knowing full well, and embracing the fact, I'd be bombarded with meeting new folk. I didn't allow myself to overthink it and threw up a hand with a friendly "Hello". The young man approached and I introduced myself.
 
-"I see you're bike packing as well" I said, "I'm Simon"
-
+"I see you're bike packing as well" I said, "I'm Simon"<br />
 "Uur yes, zat is correct. My name iz Rouven" he replied in a thick German accent.
 
 He had long dark hair tied back in a ponytail, stood a few inches smaller than myself and wore perfectly round glasses. He was dressed head to toe in cycling gear, the Spandex stuff that serious cyclists wear, and although all in all slender, had a very neat pot belly protruding out the front.
 
 What this says about me I don't know but I found it a relief to discover he was somewhat awkward. Well, not awkward, rather, not quite so fluent at conversation as your everyday confident person. He would answer all the questions I could throw at him with passion and gusto, but seemed at a loss when it came to igniting a topic of his own. The key discovery however was that we were both heading north. I left it at that, not broaching the prospect of joining forces as this would be a step too far for my social capacity. And regardless, we were planning different routes anyway. We said our good nights and I settled into my nice new tent (for the first time) and enjoyed possibly the best Pot Noddle I've ever had.
 
+<br />
 The tent ready for it's first night
 <img src="/career-breaking/assets/images/IMG_20230406_194626524.jpeg" class="img-responsive">
+
+<br />
 Well earned supper
 <img src="/career-breaking/assets/images/IMG_20230406_200341749_HDR.jpeg" class="img-responsive">
  
@@ -56,16 +58,13 @@ As I stuffed my bits and bobs into the spaces I could find it became apparent we
 
 I knew full well we were taking the same route now, and at the very least there would be an awkward conversation coming. But once again I pushed back against my gravitation towards solitude and leaned into what fate was passing my way.
 
-"Morning Rouven. I've actually decided to take the same route as you now, fancy joining forces?"
-
+"Morning Rouven. I've actually decided to take the same route as you now, fancy joining forces?"<br />
 "Yes, zat vood be very well"
 
 I hate to admit it but there was a straw that broke the camel's back in me deciding to ask. Phone battery is a precious resource out in the barren wilderness, and my phone was my navigation device.
 
-"Do you have the route mapped out?" I asked.
-
-"Yes, I have synced my Komoot account to zee Garmin and all iz vedy".
-
+"Do you have the route mapped out?" I asked.<br />
+"Yes, I have synced my Komoot account to zee Garmin and all iz vedy".<br />
 I stared blankly for a second wondering whether to ask for some elaboration, but concluded the 'Yes' was enough for me. "Great, I'll follow you" I said, switching my phone to airplane mode and storing it away.
 
 As soon as we set off I knew I'd made the right decision. Rouven set a pace which I now would argue strongly is the correct way to bike pack... Slooooowwww. Left to my own devices, like the previous day, I would push myself to maximum capacity at every turn, driven by the un-shiftable desire to arrive. Life's a journey, not a destination, a classic piece of wisdom I expect most would agree with, but putting it into practice is actually quite hard. The drive to finish something is a big part of the drive to do anything in the first place, right?
@@ -73,10 +72,8 @@ I'm not entirely sure Rouven's pace was motivated by this wisdom though, rather,
 
 I soon discovered he was also a cautious fellow. As I pedaled steadily in his wake, I was the recipient of regular updates from the road ahead.
 
-"Pothole" he would call, the pothole clear as day.
-
-"Car up ahead", he'd shout, the car coming towards us, clear as day.
-
+"Pothole" he would call, the pothole clear as day.<br />
+"Car up ahead", he'd shout, the car coming towards us, clear as day.<br />
 "Incline up ahead, 5 percent", the slope up ahead, clear as day.
 
 At each passing car he would stop dead on the verge and wave it past. Fair enough for the narrower roads, but when I say you could get a bus through that, I'm not joking.
@@ -92,14 +89,12 @@ Riding across the Tay bridge into Dundee
 We managed our forty miles in good time and arrived in Dundee late afternoon, where we pulled into a Sainsbury's for supplies. 
 Another enormous benefit of cycling together was security. With our lives contained on the bikes, having one to keep guard while the other performs necessary duties was invaluable. As I emerged from the supermarket Rouven was stood talking to a gentleman dressed in bright yellow high vis, straddling a bike of his own.
 
-"Hello" I said, introducing myself.
-
+"Hello" I said, introducing myself.<br />
 "Just admiring your bikes" he replied in his gentle Scottish accent, "you guys bike packing?"
 
 We explained our circumstances, to which he expressed great envy.
 
-"I've always wanted to do it myself but never had the chance. I'm Simon by the way"
-
+"I've always wanted to do it myself but never had the chance. I'm Simon by the way"<br />
 "Ah!" I said, "I'm also Simon!"
 
 Us Simon's are a semi rare breed, I don't meet too many so it's always a pleasant surprise.
@@ -117,20 +112,24 @@ This all made me quite uneasy. I'm a live and let live guy, people drive cars, i
 We arrived at the scout centre, and kudos to Rouven, found a wonderful grove of trees tucked away, perfect for some sneaky camping.
 Simon left us to it with a fond farewell and I hope a little more inspiration to bike pack himself. I'd love one day to see him again on the road, with a tailback of beeping cars in tow, and big smile on his face.
 
-
+<br />
 Rouven having dinner at our spot in the scout's camping grounds
 <img src="/career-breaking/assets/images/IMG_20230407_201541145.jpeg" class="img-responsive">
 
 We set off early, 9am, next day after a better night's sleep. The next destination was unknown exactly, but all we had to do was follow the route 1 route and arrive somewhere just shy of Aberdeen. The day passed by nicely. At some point mid morning I realised that traveling like this, by bike, was now my new favourite way to get around. I have no explicit reason why, but it's hard to ignore the perpetually pleasant feeling that comes from gliding around on a well functioning bicycle.
 The blissful travelling was occasionally jolted by a pang of nerves as I'd remember the unknown of what was in-store upon arrival. Please don't let them be crazy. 6 weeks is not a long time, but it's long enough to suffer if I found the hosts difficult. I'd take a breath and look at the wonderful scenery to bring myself out from the spiralling hole that we call worry.
 
+<br />
 National cycle network sign post for route 1
 <img src="/career-breaking/assets/images/IMG_20230408_110132660_HDR.jpeg" class="img-responsive">
+
+<br />
 Some nice views
 <img src="/career-breaking/assets/images/IMG_20230408_143135446_HDR.jpeg" class="img-responsive">
 
 The journey up the east coast was through the land of farms. You may assume that to mean a monotonous landscape, but the track took us through woodlands, country roads, quaint towns, and a multitude of fields being actively managed in some way, due the time of year. As well as this I passed three or four of what are now my dream homes. One in particular, perched atop a hill looking down into the bay of Montrose had chickens, vegetable plots, fruit trees and arrays of daffodils lining the garden walls, all coloured in by the Scottish sunshine, painting the ideal country home.
 
+<br />
 Daffodil farms
 <img src="/career-breaking/assets/images/IMG_20230408_163335371_HDR.jpeg" class="img-responsive">
 
@@ -151,24 +150,32 @@ As planned we set up shop inside the viewing hut, safely sheltered from the wind
 <img src="/career-breaking/assets/images/IMG_20230408_195246110_HDR.jpeg" class="img-responsive">
 
 We woke up to Easter Sunday. I took a look but no eggs had been left. I felt a little short changed when I stepped outside for the morning wee and saw a bunny hopping off in the opposite direction.
+
 Today was the last full day of cycling. The plan was to arrive at the small holding on the Monday, preferably midday-ish. This meant the same again, continue along route 1 through Aberdeen and onwards north. I failed to mention that route 1 just so happened to pass by my destination within a mile or two. It was too perfect.
+
 Once again Rouven's steady pace set the tempo for the day and we cruised through Aberdeen, stopping for lunch. Beyond this we covered a number miles cruising along a flat cycle track we later confirmed was an old railway track.
 
+<br />
 Not the railway track but another spell of flat cycling, the dream
 <img src="/career-breaking/assets/images/Open Screenshot_20230417-192846.png" class="img-responsive">
 
 The day ended again with the dreaded hunt for a decent spot to camp. Rouven spied a nice line of woodland in a valley and we pushed our bikes in to take a closer look. There was a clearing that looked perfectly suitable, albeit some serious removal of ground fodder required, but it seemed neither of us were in a hurry to unpack and set up. There was an unease in the air. This was a fairly open woodland, slightly tucked away but we were still visible from the road, particularly in the daylight. Again we'd stopped around 5pm and the realisation of having four hours to kill, in a fairly exposed spot seemed to drive our hesitation. I figured this was just all part of it and motioned to except our fate and begin preparing the ground, when Rouven, inspecting his phone closely, spoke up.
-"Zair iz a campsite around ten miles north. Vot do you think of vee head zair?"
+
+"Zair iz a campsite around ten miles north. Vot do you think of vee head zair?"<br />
 Music to my ears. Without hesitation I concurred. "Yep, let's do it!".
+
 We jumped back on the bikes and gleefully cycled towards what felt like a guilty pleasure.
 
+<br />
 The spot we escaped from
 <img src="/career-breaking/assets/images/IMG_20230409_170343567_HDR.jpeg" class="img-responsive">
 
 The ten miles north was also a welcome bonus as it meant ten miles off tomorrow, and I for one, after a very flat day on the old rail tracks had plenty of energy left.
+
 We pushed on and arrived at Ythan Valley Campsite an hour later.
 To call it a campsite is a push. In my opinion it's something beyond that. Liddy, the owner welcomed us in with open arms and a cup of tea. It turns out we were in fact to be pitching up in her (large) back garden. We were her first guests of the season and had the whole place to ourselves. Her grass was luscious and flat, and she choose us a spot sheltered from the prevailing wind. She then pointed us to the wash room, which included free hot showers. I had not had any kind of shower since London and although I'll argue I did not smell, and did not desperately need one, I bloody well had one. It would be like turning down a swim in a tub of jelly beans just because you're not hungry. The whole experience was a real treat and although back in the tent, the sleep-o-dar went up once again.
 
+<br />
 Our spot at Ythan Valley Campsite / back garden
 <img src="/career-breaking/assets/images/IMG_20230410_093853792_HDR.jpeg" class="img-responsive">
 
@@ -179,17 +186,21 @@ As we packed the sun broke through and once again the daytime weather was on our
 
 Rouven by this stage was suffering a little. His previous tours had been around North West Germany and the Netherlands, i.e flat lands. The hills we'd contended with so far were fairly minor by English standards and near on horizontal by Scottish ones. His journey beyond my stop was a circuit west to Inverness, then back down through the Cairngorms. He was well aware from his research what he had in store and my only reassurance for the completion was his patience. Never the less, his knees were beginning to suffer and he asked if it would be possible to rest a day at the small holding. I messaged Rosie with the request and she confirmed straight away with no questions asked. I knew now at least she was kind, the crazy question still stood, but was now less important.
 
+<br />
 Five miles short we stopped in Turriff for lunch. A fitting sign post marked where it all began
 <img src="/career-breaking/assets/images/IMG_20230410_142724867_HDR.jpeg" class="img-responsive">
 
 The final turn onto the final road saw us pedalling along one side of a valley. Gently meandering down its centre was the river Devron, cutting through the fields and farmland flanking its banks. At last we arrived, signpost reading "The Wood of Shaws", we turned into the long driveway down towards the house and were met with a torrent of barks from the three dogs running along the fence line with us. I spied the gentleman standing in the yard who greeted us with a wave.
-"You must be Mike" I called
+
+"You must be Mike" I called<br />
 "Indeed, if you swing your bikes round to the courtyard I'll meet you there".
 
+<br />
 Entrance to the Wood of Shaws
 <img src="/career-breaking/assets/images/IMG_20230418_105345968_HDR.jpeg" class="img-responsive">
 
 And so ended the journey from South to North. My life on the road came to an abrupt ending as dismounted my bike and prepared for the first major chapter of this year. There waiting for us at the back door was Rosie, wearing a big smile.
 
+<br />
 Map our the stops
 <img src="/career-breaking/assets/images/Screenshot_20230415-212740~2.png" class="img-responsive">
