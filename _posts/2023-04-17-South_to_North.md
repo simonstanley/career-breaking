@@ -207,5 +207,5 @@ Entrance to the Wood of Shaws
 And so ended the journey from South to North. My life on the road came to an abrupt ending as dismounted my bike and prepared for the first major chapter of this year. There waiting for us at the back door was Rosie, wearing a big smile.
 
 <br />
-Map our the stops
+Map of the stops
 <img src="/career-breaking/assets/images/Screenshot_20230415-212740~2.png" class="img-responsive">
