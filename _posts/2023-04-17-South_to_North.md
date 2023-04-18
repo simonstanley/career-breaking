@@ -19,15 +19,22 @@ After gulping two bananas on the platform, I left Waverly station. The sun was s
 The journey was marked by notable potholes (I've since discovered Edinburgh is infamous for them), the crossing of the Forth road bridge and the painstakingly learnt wisdom that the top of the hill, is not the top of the hill.
 My yet to be named bike handled them all with such sturdiness and grace, I knew this to be the first chapter of a life long love affair.
 
+
 Practising my selfies crossing the Forth road bridge
 <img src="/career-breaking/assets/images/IMG_20230406_165158480_HDR.jpeg" class="img-responsive">
 
 Three and a half hours later I arrived at the campsite, around 7pm, feeling tired. This indeed was a decent leap from the usual amount of exercise I did. My "normal" life was working as a computer programmer, and so aside from the daily walk to work, my entire body was used to a pretty permanent state of rest.
+
 It being April, the campsite was not busy. As I walked to my pitch, I clocked the two other tents occupying the field. Next to my neighbour's tent stood a bicycle with well packed panniers hanging off just about every inch of the frame. It's owner emerged and clocked me wheeling my own carriage in his direction.
+
 This moment was a point of conflict for me. I'm an introvert and so the default preference I just can't shake is always for solitude, particularly when it comes to people I don't know. It's somewhat of a bug bare of mine as I'm most happy around people and I delved into this year knowing full well, and embracing the fact, I'd be bombarded with meeting new folk. I didn't allow myself to overthink it and threw up a hand with a friendly "Hello". The young man approached and I introduced myself.
+
 "I see you're bike packing as well" I said, "I'm Simon"
+
 "Uur yes, zat is correct. My name iz Rouven" he replied in a thick German accent.
+
 He had long dark hair tied back in a ponytail, stood a few inches smaller than myself and wore perfectly round glasses. He was dressed head to toe in cycling gear, the Spandex stuff that serious cyclists wear, and although all in all slender, had a very neat pot belly protruding out the front.
+
 What this says about me I don't know but I found it a relief to discover he was somewhat awkward. Well, not awkward, rather, not quite so fluent at conversation as your everyday confident person. He would answer all the questions I could throw at him with passion and gusto, but seemed at a loss when it came to igniting a topic of his own. The key discovery however was that we were both heading north. I left it at that, not broaching the prospect of joining forces as this would be a step too far for my social capacity. And regardless, we were planning different routes anyway. We said our good nights and I settled into my nice new tent (for the first time) and enjoyed possibly the best Pot Noddle I've ever had.
 
 The tent ready for it's first night
@@ -38,28 +45,40 @@ Well earned supper
 The route I had planned was through the Cairngorms. For those that don't know, which included me up until a couple of weeks before leaving, the Cairngorms is a mountain range in east Scotland where skiing takes place. I'd planned this route solely on the basis that looking at satellite imagery, it looked wild. If I'm going to cycle through Scotland, I want to see the rugged landscapes it's famous for, with free reign to stop and camp wherever I like. When I was informed it would perhaps be tough going, especially for a first timer fresh from the office chair, I sort of flinched. But, following the well received wisdom from a colleague, "You'll be alright. It'll be hard but you'll adapt", a very apt statement for the ethos of the whole year, I held firm to my plans... That was until my first night's "sleep".
 
 The campsite was at no significant altitude, but a clear sky left the temperature to drop over night. I had justified not splashing out on a fancy sleeping bag by bringing thermals (and other layers) with me. Super sleepy after my lovely Pot Noddle, I wrapped myself up and tucked myself in at 9pm.
+
 I must say, I woke up really rather refreshed. The first thing I noticed though was the cold. It seemed for all my layers, the body heat had found a way to leak away from me. I winced open an eye to see it was still dark. No bother I thought, I felt rested and I'm quite happy to head off for a nice early start. I fumbled around for my phone to check the time, 10pm... Oh.
 I'd slept a measley one hour and was now very awake, and very cold. Needless to say it was a long night. I concluded somewhere in the early hours that perhaps continuing this up into the snowy peaks of the Cairngorms was a bad idea. There was a clear alternative route round the coast, through Dundee and Aberdeen, that seemed if nothing else, safer, and I knew my parents would be on board. In the back of my mind I clocked that this was the route Rouven had planned.
 
 I'd given my 160ish mile journey a schedule of four days. Any cyclist will tell you, forty miles a day is very leisurely. As the tent warmed up in the morning sunshine I got my best sleep, comforted by the time buffer I'd given myself. There was no rush. I continued the slow pace with the morning duties; cinnamon porridge for breakfast, followed by a green tea and a nice poo. I made my way down to the "camper's bothy", one of those standalone offices you see on building sites, to stick my phone on charge. On my return I clocked Rouven beginning to pack up. We acknowledged each other with another exchange of friendly waves. Carrying on, I washed myself, washed the dishes, and began thinking about packing up my own bits, all at the deliberately slow pace one should expect when on holiday.
+
 By the time I got to packing up the bike, I couldn't help notice Rouven was still working at it himself. It seemed his little one man tent was some distant cousin of the TARDIS. Again and again he would crouch down and disappear into it, then reverse back out, dragging yet another bag brimming with equipment, where was it all coming from? It was clear he knew what he was doing, strategically placing items on the ground ready for loading in a well rehearsed order. We had spoken the evening before about his many prior bike packing trips around Europe, but this was the moment I realised he was a pro.
 As I stuffed my bits and bobs into the spaces I could find it became apparent we would be ready at the same time. Again my introvert nature kicked in at the prospect of us cycling in tandem, but it being 11am by now, and unable to simply stop packing and stand around. I let nature take its course. And of course, the stars aligned. We looked across to each other as we both clipped in our helmets in perfect synchronicity.
 
 I knew full well we were taking the same route now, and at the very least there would be an awkward conversation coming. But once again I pushed back against my gravitation towards solitude and leaned into what fate was passing my way.
+
 "Morning Rouven. I've actually decided to take the same route as you now, fancy joining forces?"
+
 "Yes, zat vood be very well"
+
 I hate to admit it but there was a straw that broke the camel's back in me deciding to ask. Phone battery is a precious resource out in the barren wilderness, and my phone was my navigation device.
-"Do you have the route mapped out?" I asked,
-"Yes, I have synced my Komoot account to zee Garmin and all iz vedy"
+
+"Do you have the route mapped out?" I asked.
+
+"Yes, I have synced my Komoot account to zee Garmin and all iz vedy".
+
 I stared blankly for a second wondering whether to ask for some elaboration, but concluded the 'Yes' was enough for me. "Great, I'll follow you" I said, switching my phone to airplane mode and storing it away.
 
 As soon as we set off I knew I'd made the right decision. Rouven set a pace which I now would argue strongly is the correct way to bike pack... Slooooowwww. Left to my own devices, like the previous day, I would push myself to maximum capacity at every turn, driven by the un-shiftable desire to arrive. Life's a journey, not a destination, a classic piece of wisdom I expect most would agree with, but putting it into practice is actually quite hard. The drive to finish something is a big part of the drive to do anything in the first place, right?
 I'm not entirely sure Rouven's pace was motivated by this wisdom though, rather, it was simply his pace. His smaller stature, his fully loaded bike, and as I now discovered, his lack of acquaintance with hills, meant he naturally travelled with patience.
 
 I soon discovered he was also a cautious fellow. As I pedaled steadily in his wake, I was the recipient of regular updates from the road ahead.
+
 "Pothole" he would call, the pothole clear as day.
+
 "Car up ahead", he'd shout, the car coming towards us, clear as day.
+
 "Incline up ahead, 5 percent", the slope up ahead, clear as day.
+
 At each passing car he would stop dead on the verge and wave it past. Fair enough for the narrower roads, but when I say you could get a bus through that, I'm not joking.
 Every single junction was clearly indicated with an sturdy outstretched arm, long before we reached the junction and regardless of the presence of cars. We were following a designated cycle route (route 1 of the national cycle network which runs from Dover to Tain), that took us through barren tracks with no one in sight for miles, but this had no baring on the conviction and structure of that outstretched arm.
 
@@ -72,21 +91,32 @@ Riding across the Tay bridge into Dundee
 
 We managed our forty miles in good time and arrived in Dundee late afternoon, where we pulled into a Sainsbury's for supplies. 
 Another enormous benefit of cycling together was security. With our lives contained on the bikes, having one to keep guard while the other performs necessary duties was invaluable. As I emerged from the supermarket Rouven was stood talking to a gentleman dressed in bright yellow high vis, straddling a bike of his own.
+
 "Hello" I said, introducing myself.
+
 "Just admiring your bikes" he replied in his gentle Scottish accent, "you guys bike packing?"
+
 We explained our circumstances, to which he expressed great envy.
+
 "I've always wanted to do it myself but never had the chance. I'm Simon by the way"
+
 "Ah!" I said, "I'm also Simon!"
+
 Us Simon's are a semi rare breed, I don't meet too many so it's always a pleasant surprise.
 He inquired on our sleeping arrangements and Rouven showed him the spot he had in mind on the map. He'd had a look beforehand and spotted a scout centre a few miles north of Dundee which he assumed would have good camping. Again, the legalities of this I don't know but Simon, who was a local, was reassuring in that he made the very valid point, "If anyone's going to be okay with a couple of guys wild camping it's the scouts".
+
 Upon seeing the location he asked if he could join us in our cycle up there.
 At this, my stranger danger alarm bells went off. I don't know what it's like in Scotland but where I'm from it's not normal for a bloke to decide on a whim to drop his shopping plans and cycle off with a couple of strangers. This is exactly the situation that'll be the death of me. There was no way in hell my southern politeness would refuse this heartfelt request. Plus, I'm all to aware that the level of reserve in my home county distorts any sign of open friendliness all too quickly as sinister intent. And so, we agreed and he came along.
+
 I'm pleased to say this was a good decision. As we cycled out of the city Simon proved to be a cheery chap with a real love for life... except that is for his very clear distaste for cars. He would cycle in the middle of the road and reluctantly pull over when a car came up behind, followed by a tut as they veered round.
+
 "There's just too many cars on the road" he'd say, "I just want to enjoy my cycle in peace".
+
 This all made me quite uneasy. I'm a live and let live guy, people drive cars, it doesn't make them bad people, but I couldn't help admire the man for his unshakable stance on the destruction cars have caused the planet. The demonstration of his equal right to use the road, while at first putting me on edge, unlocked something in me. For safety and practically I always tucked myself into the curb as much as possible. This is fine, but has led to me feeling a kind of imprisonment I hadn't really noticed. I'm not going to change this, but Simon's approach made me see the road differently. It's free to use, it's shared by all, it's open, and although dangerous, it's a wonderful piece of infrastructure that allows us to glide around the world with significant ease.
 
 We arrived at the scout centre, and kudos to Rouven, found a wonderful grove of trees tucked away, perfect for some sneaky camping.
 Simon left us to it with a fond farewell and I hope a little more inspiration to bike pack himself. I'd love one day to see him again on the road, with a tailback of beeping cars in tow, and big smile on his face.
+
 
 Rouven having dinner at our spot in the scout's camping grounds
 <img src="/career-breaking/assets/images/IMG_20230407_201541145.jpeg" class="img-responsive">
