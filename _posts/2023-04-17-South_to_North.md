@@ -88,14 +88,14 @@ A couple miles into day 2
 <img src="/career-breaking/assets/images/IMG_20230407_113124244_HDR.jpeg" class="img-responsive">
 
 <br />
-Riding across the Tay bridge into Dundee
+Riding across the Tay bridge into Dundee (and my view of Rouven for the whole trip)
 <img src="/career-breaking/assets/images/IMG_20230407_162534797.jpeg" class="img-responsive">
 
 We managed our forty miles in good time and arrived in Dundee late afternoon, where we pulled into a Sainsbury's for supplies. 
 Another enormous benefit of cycling together was security. With our lives contained on the bikes, having one to keep guard while the other performs necessary duties was invaluable. As I emerged from the supermarket Rouven was stood talking to a gentleman dressed in bright yellow high vis, straddling a bike of his own.
 
 "Hello" I said, introducing myself.<br />
-"Just admiring your bikes" he replied in his gentle Scottish accent, "you guys bike packing?"
+"Just admiring your bikes" he replied in a gentle Scottish accent, "you guys bike packing?"
 
 We explained our circumstances, to which he expressed great envy.
 
@@ -121,8 +121,8 @@ Simon left us to it with a fond farewell and I hope a little more inspiration to
 Rouven having dinner at our spot in the scout's camping grounds
 <img src="/career-breaking/assets/images/IMG_20230407_201541145.jpeg" class="img-responsive">
 
-We set off early, 9am, next day after a better night's sleep. The next destination was unknown exactly, but all we had to do was follow the route 1 route and arrive somewhere just shy of Aberdeen. The day passed by nicely. At some point mid morning I realised that traveling like this, by bike, was now my new favourite way to get around. I have no explicit reason why, but it's hard to ignore the perpetually pleasant feeling that comes from gliding around on a well functioning bicycle.
-The blissful travelling was occasionally jolted by a pang of nerves as I'd remember the unknown of what was in-store upon arrival. Please don't let them be crazy. 6 weeks is not a long time, but it's long enough to suffer if I found the hosts difficult. I'd take a breath and look at the wonderful scenery to bring myself out from the spiralling hole that we call worry.
+We set off early, 9am, next day after a better night's sleep. The next destination was not precisely known, but all we had to do was follow the route 1 route and arrive somewhere just shy of Aberdeen. The day passed by nicely. At some point mid morning I realised that traveling like this, by bike, was now my new favourite way to get around. I have no explicit reason why, but it's hard to ignore the perpetually pleasant feeling that comes from gliding around on a well functioning bicycle.<br />
+The blissful travelling was occasionally jolted by a pang of nerves as I'd remember the unknown of what was in-store upon arrival. Please don't let them be crazy. 6 weeks is not a long time, but it's long enough to suffer if I found the hosts difficult. I'd take a breath and look at the wonderful scenery to bring myself out from the spiralling hole of worry.
 
 <br />
 National cycle network sign post for route 1
