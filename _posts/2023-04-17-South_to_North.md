@@ -102,7 +102,7 @@ Some nice views
 The journey up the east coast was through the land of farms. You may assume that to mean a monotonous landscape, but the track took us through woodlands, country roads, quaint towns, and a multitude of fields being actively managed in some way, due the time of year. As well as this I passed three or four of what are now my dream homes. One in particular, perched atop a hill looking down into the bay of Montrose had chickens, vegetable plots, fruit trees and arrays of daffodils lining the garden walls, all coloured in by the Scottish sunshine, painting the ideal country home.
 
 Daffodil farms
-<img src="/career-breaking/assets/images/IMG_20230408_163335_HDR.jpeg" class="img-responsive">
+<img src="/career-breaking/assets/images/IMG_20230408_163335371_HDR.jpeg" class="img-responsive">
 
 Beyond Montrose we stopped briefly along the way at the Den finella waterfall, just past St Cyrus, and admired the mighty plummet undertaken by the Garvock Burn.
 <img src="/career-breaking/assets/images/IMG_20230408_150432174_HDR.jpeg" class="img-responsive">
@@ -123,7 +123,8 @@ We woke up to Easter Sunday. I took a look but no eggs had been left. I felt a l
 Today was the last full day of cycling. The plan was to arrive at the small holding on the Monday, preferably midday-ish. This meant the same again, continue along route 1 through Aberdeen and onwards north. I failed to mention that route 1 just so happened to pass by my destination within a mile or two. It was too perfect.
 Once again Rouven's steady pace set the tempo for the day and we cruised through Aberdeen, stopping for lunch. Beyond this we covered a number miles cruising along a flat cycle track we later confirmed was an old railway track.
 
-Cycling image
+Not the railway track but another spell of flat cycling, the dream
+<img src="/career-breaking/assets/images/Screenshot_20230417-192846.png" class="img-responsive">
 
 The day ended again with the dreaded hunt for a decent spot to camp. Rouven spied a nice line of woodland in a valley and we pushed our bikes in to take a closer look. There was a clearing that looked perfectly suitable, albeit some serious removal of ground fodder required, but it seemed neither of us were in a hurry to unpack and set up. There was an unease in the air. This was a fairly open woodland, slightly tucked away but we were still visible from the road, particularly in the daylight. Again we'd stopped around 5pm and the realisation of having four hours to kill, in a fairly exposed spot seemed to drive our hesitation. I figured this was just all part of it and motioned to except our fate and begin preparing the ground, when Rouven, inspecting his phone closely, spoke up.
 "Zair iz a campsite around ten miles north. Vot do you think of vee head zair?"
@@ -134,7 +135,8 @@ The ten miles north was also a welcome bonus as it meant ten miles off tomorrow,
 We pushed on and arrived at Ythan Valley Campsite an hour later.
 To call it a campsite is a push. In my opinion it's something beyond that. Liddy, the owner welcomed us in with open arms and a cup of tea. It turns out we were in fact to be pitching up in her (large) back garden. We were her first guests of the season and had the whole place to ourselves. Her grass was luscious and flat, and she choose us a spot sheltered from the prevailing wind. She then pointed us to the wash room, which included free hot showers. I had not had any kind of shower since London and although I'll argue I did not smell, and did not desperately need one, I bloody well had one. It would be like turning down a swim in a tub of jelly beans just because you're not hungry. The whole experience was a real treat and although back in the tent, the sleep-o-dar went up once again.
 
-Liddy image
+Our spot at Ythan Valley Campsite / back garden
+<img src="/career-breaking/assets/images/IMG_20230410_093853792_HDR.jpeg" class="img-responsive">
 
 A nomadic camper's worst hindrance is rain. Keeping everything dry as you stow it away takes ten times longer and packing a wet tent feels somehow sinful. We had been hit by rain twice so far, both times in the night, and both times, the rain had stopped right on que as we roused from our sleeping bags.
 For a first timer like myself, it's hard to gauge what useful equipment to bring and you soon realise what you've missed. For me it was a peg to hold back the tent door (a minor floor in the tent design) and a lighter. But these were easily remedied. On the other hand, there is equipment you do bring that you had no idea would be so useful. My top recommendation for any prospecting bike backers is a sponge. I took great pleasure methodically wiping off the droplets of rain that covered my little tent and squeezing out the would be weight onto the grass. It's quite remarkable how much water there actually was.
@@ -143,8 +145,11 @@ As we packed the sun broke through and once again the daytime weather was on our
 
 Rouven by this stage was suffering a little. His previous tours had been around North West Germany and the Netherlands, i.e flat lands. The hills we'd contended with so far were fairly minor by English standards and near on horizontal by Scottish ones. His journey beyond my stop was a circuit west to Inverness, then back down through the Cairngorms. He was well aware from his research what he had in store and my only reassurance for the completion was his patience. Never the less, his knees were beginning to suffer and he asked if it would be possible to rest a day at the small holding. I messaged Rosie with the request and she confirmed straight away with no questions asked. I knew now at least she was kind, the crazy question still stood, but was now less important.
 
-The final turn onto the final road saw us pedalling along one side of a valley. Gently meandering down its centre was the river Devron, cutting through the fields and farmland on its flanking slopes. At last we arrived, signpost reading "The Wood of Shaws", we turned into the long driveway down towards the house and were met with a torrent of barks from the three dogs running along the fence line with us. I spied the gentleman standing in the yard who greeted us with a wave.
+The final turn onto the final road saw us pedalling along one side of a valley. Gently meandering down its centre was the river Devron, cutting through the fields and farmland flanking its banks. At last we arrived, signpost reading "The Wood of Shaws", we turned into the long driveway down towards the house and were met with a torrent of barks from the three dogs running along the fence line with us. I spied the gentleman standing in the yard who greeted us with a wave.
 "You must be Mike" I called
 "Indeed, if you swing your bikes round to the courtyard I'll meet you there".
+
+Entrance to the Wood of Shaws
+<img src="/career-breaking/assets/images/IMG_20230418_105345968_HDR.jpeg" class="img-responsive">
 
 And so ended the journey from South to North. My life on the road came to an abrupt ending as dismounted my bike and prepared for the first major chapter of this year. There waiting for us at the back door was Rosie, wearing a big smile.
