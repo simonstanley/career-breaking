@@ -124,7 +124,7 @@ Today was the last full day of cycling. The plan was to arrive at the small hold
 Once again Rouven's steady pace set the tempo for the day and we cruised through Aberdeen, stopping for lunch. Beyond this we covered a number miles cruising along a flat cycle track we later confirmed was an old railway track.
 
 Not the railway track but another spell of flat cycling, the dream
-<img src="/career-breaking/assets/images/Screenshot_20230417-192846.png" class="img-responsive">
+<img src="/career-breaking/assets/images/Screenshot_20230415-212740.png" class="img-responsive">
 
 The day ended again with the dreaded hunt for a decent spot to camp. Rouven spied a nice line of woodland in a valley and we pushed our bikes in to take a closer look. There was a clearing that looked perfectly suitable, albeit some serious removal of ground fodder required, but it seemed neither of us were in a hurry to unpack and set up. There was an unease in the air. This was a fairly open woodland, slightly tucked away but we were still visible from the road, particularly in the daylight. Again we'd stopped around 5pm and the realisation of having four hours to kill, in a fairly exposed spot seemed to drive our hesitation. I figured this was just all part of it and motioned to except our fate and begin preparing the ground, when Rouven, inspecting his phone closely, spoke up.
 "Zair iz a campsite around ten miles north. Vot do you think of vee head zair?"
