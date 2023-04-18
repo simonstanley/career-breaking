@@ -149,7 +149,7 @@ As we packed the sun broke through and once again the daytime weather was on our
 
 Rouven by this stage was suffering a little. His previous tours had been around North West Germany and the Netherlands, i.e flat lands. The hills we'd contended with so far were fairly minor by English standards and near on horizontal by Scottish ones. His journey beyond my stop was a circuit west to Inverness, then back down through the Cairngorms. He was well aware from his research what he had in store and my only reassurance for the completion was his patience. Never the less, his knees were beginning to suffer and he asked if it would be possible to rest a day at the small holding. I messaged Rosie with the request and she confirmed straight away with no questions asked. I knew now at least she was kind, the crazy question still stood, but was now less important.
 
-Fives short we stopped in Turriff for lunch. A fitting signpost marked where it all began
+Five miles short we stopped in Turriff for lunch. A fitting sign post marked where it all began
 <img src="/career-breaking/assets/images/IMG_20230410_142724867_HDR.jpeg" class="img-responsive">
 
 The final turn onto the final road saw us pedalling along one side of a valley. Gently meandering down its centre was the river Devron, cutting through the fields and farmland flanking its banks. At last we arrived, signpost reading "The Wood of Shaws", we turned into the long driveway down towards the house and were met with a torrent of barks from the three dogs running along the fence line with us. I spied the gentleman standing in the yard who greeted us with a wave.
@@ -162,4 +162,4 @@ Entrance to the Wood of Shaws
 And so ended the journey from South to North. My life on the road came to an abrupt ending as dismounted my bike and prepared for the first major chapter of this year. There waiting for us at the back door was Rosie, wearing a big smile.
 
 Map our the stops
-<img src="/career-breaking/assets/images/Screenshot_20230415_212740~2.png" class="img-responsive">
+<img src="/career-breaking/assets/images/Screenshot_20230415-212740~2.png" class="img-responsive">
