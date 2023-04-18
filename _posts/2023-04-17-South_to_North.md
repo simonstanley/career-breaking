@@ -21,7 +21,7 @@ My yet to be named bike handled them all with such sturdiness and grace, I knew 
 
 Practising my selfies crossing the Forth road bridge
 <img src="/career-breaking/assets/images/IMG_20230406_165158480_HDR.jpeg" class="img-responsive">
-<img src="/career-breaking/assets/images/IMG_20230406_165211376_HDR.jpeg" class="img-responsive">
+<img src="/career-breaking/assets/images/IMG_20230406_165225067_HDR.jpeg" class="img-responsive">
 
 Three and a half hours later I arrived at the campsite, around 7pm, feeling tired. This indeed was a decent leap from the usual amount of exercise I did. My "normal" life was working as a computer programmer, and so aside from the daily walk to work, my entire body was used to a pretty permanent state of rest.
 It being April, the campsite was not busy. As I walked to my pitch, I clocked the two other tents occupying the field. Next to my neighbour's tent stood a bicycle with well packed panniers hanging off just about every inch of the frame. It's owner emerged and clocked me wheeling my own carriage in his direction.
@@ -103,7 +103,7 @@ Some nice views
 The journey up the east coast was through the land of farms. You may assume that to mean a monotonous landscape, but the track took us through woodlands, country roads, quaint towns, and a multitude of fields being actively managed in some way, due the time of year. As well as this I passed three or four of what are now my dream homes. One in particular, perched atop a hill looking down into the bay of Montrose had chickens, vegetable plots, fruit trees and arrays of daffodils lining the garden walls, all coloured in by the Scottish sunshine, painting the ideal country home.
 
 Daffodil farms
-<img src="/career-breaking/assets/images/IMG_20230408_163335371_HDR.jpeg" class="img-responsive">
+<img src="/career-breaking/assets/images/IMG_20230408_163335_HDR.jpeg" class="img-responsive">
 
 Beyond Montrose we stopped briefly along the way at the Den finella waterfall, just past St Cyrus, and admired the mighty plummet undertaken by the Garvock Burn.
 <img src="/career-breaking/assets/images/IMG_20230408_150432174_HDR.jpeg" class="img-responsive">
