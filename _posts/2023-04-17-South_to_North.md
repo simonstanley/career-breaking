@@ -19,7 +19,7 @@ After gulping two bananas on the platform, I left Waverly station. The sun was s
 The journey was marked by notable potholes (I've since discovered Edinburgh is infamous for them), the crossing of the Forth road bridge and the painstakingly learnt wisdom that the top of the hill, is not the top of the hill.
 My yet to be named bike handled them all with such sturdiness and grace, I knew this to be the first chapter of a life long love affair.
 
-
+  
 Practising my selfies crossing the Forth road bridge
 <img src="/career-breaking/assets/images/IMG_20230406_165158480_HDR.jpeg" class="img-responsive">
 
