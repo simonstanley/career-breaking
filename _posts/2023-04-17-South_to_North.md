@@ -12,7 +12,7 @@ My ultimate destination was a small holding called the Wood of Shaws in north Ab
 
 In the meantime, the plan was to make the 160ish miles from Edinburgh by bike, wild camping along the way. In Scotland they have the "right to roam", that is, it's legal to wild camp. Whether that applies to cities, suburbs, farmland etc, I don't know but regardless, being from the south of England, I would be aghast to feel myself camping somewhere in the way. From my brief glance at satellite imagery, it appeared the type of wild I'd feel comfortable camping in was beyond the reach of Edinburgh in the five hours of daylight I'd have to get there. Therefore, my first stop was a campsite, thirty miles north in Kinross.
 
-After gulping two bananas on the platform, I left Waverly station. The sun was out and the wind was low, both of which helped clear the foggy mind and raise the spirits. Day to day I'm not in the habit of taking photos, but dutifully I reminded myself before ploughing on through the city to take an opening snap...
+After gulping two bananas on the platform, I left Waverly station. The sun was sort of out and the wind was low, both of which helped clear the foggy mind and raise the spirits. Day to day I'm not in the habit of taking photos, but dutifully I reminded myself before ploughing on through the city to take an opening snap...
 
 <img src="/career-breaking/assets/images/IMG_20230406_153546562_HDR.jpeg" class="img-responsive">
 
