@@ -4,3 +4,12 @@ title: Home
 ---
 <h1>Career breaking</h1>
 <p>A mid-life gap year (not crisis), to explore living off grid and do some fun stuff</p>
+<h1>Posts</h1>
+
+<ul>
+  {% for post in site.posts %}
+    <li>
+      <h2><a href="{{ site.baseurl }}{{ post.url }}">{{ post.title }}</a></h2>
+    </li>
+  {% endfor %}
+</ul>
