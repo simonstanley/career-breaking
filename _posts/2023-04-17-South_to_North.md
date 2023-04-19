@@ -189,13 +189,13 @@ Now, for a first timer like myself, it's hard to gauge what equipment is useful 
 
 As we packed up the sun broke through and once again the daytime weather was on our side. We loaded up in good time and set off for the final (half) day of cycling.
 
-Rouven by this stage was suffering a little. His previous tours had been around North West Germany and the Netherlands, i.e flat lands. The hills we'd contended with so far were fairly minor by English standards and near on horizontal by Scottish ones. His journey beyond my stop was a circuit west to Inverness, then back down through the Cairngorms. He was well aware from his research what he had in store and my only reassurance for the completion of it was his patience. Never the less, his knees were beginning to suffer and he asked if it would be possible to rest a day at the small holding. I messaged Rosie with the request and she confirmed straight away with no questions aske, that this would be fine. I knew now at least she was kind, the crazy question still stood, but became a little less important.
+Rouven by this stage was suffering a little. His previous tours had been around North West Germany and the Netherlands, i.e flat lands. The hills we'd contended with so far were fairly minor by English standards and near on horizontal by Scottish ones. His journey beyond my stop was a circuit west to Inverness, then back down through the Cairngorms. He was well aware from his research what he had in store and my only reassurance for the completion of it was his patience. Never the less, his knees were beginning to suffer and he asked if it would be possible to rest a day at the small holding. I messaged Rosie with the request and she confirmed straight away with no questions asked, that this would be fine. I knew now at least she was kind, the crazy question still stood, but became a little less important.
 
 <br />
 Five miles short we stopped in Turriff for lunch. A fitting sign post marked where it all began
 <img src="/career-breaking/assets/images/IMG_20230410_142724867_HDR.jpeg" class="img-responsive">
 
-The final turn onto the final road saw us pedalling along one side of a valley. Gently meandering down its centre towards us was the river Devron, cutting through the fields and farmland flanking its banks. At last we arrived at the signpost reading "The Wood of Shaws". We turned into the long driveway down towards the house and were met with a torrent of barks from the three dogs running along the fence line with us. I spied the gentleman standing in the yard who greeted us with a wave.
+The final turn onto the final road saw us pedalling along one side of a valley. Gently meandering down its centre towards us was the river Devron, cutting through the fields and farmland flanking its banks. At last we arrived at the signpost reading "Wood of Shaws". We turned into the long driveway down towards the house and were met with a torrent of barks from the three dogs running along the fence line with us. I spied the gentleman standing in the yard who greeted us with a wave.
 
 "You must be Mike" I called<br />
 "Indeed, if you swing your bikes round to the courtyard I'll meet you there".
@@ -204,7 +204,7 @@ The final turn onto the final road saw us pedalling along one side of a valley. 
 Entrance to the Wood of Shaws
 <img src="/career-breaking/assets/images/IMG_20230418_105345968_HDR.jpeg" class="img-responsive">
 
-And so ended the journey from South to North. My life on the road came to an abrupt ending as dismounted my bike and prepared for the first major chapter of this year. There waiting for us at the back door was Rosie, wearing a big smile.
+And so ended the journey from South to North. My life on the road came to an abrupt ending as I dismounted my bike and prepared for the first major chapter of this year. There waiting for us at the back door was Rosie, wearing a big smile.
 
 <br />
 Map of the stops
