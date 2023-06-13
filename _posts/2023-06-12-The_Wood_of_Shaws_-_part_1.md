@@ -6,7 +6,7 @@ My very first impression for my coming six weeks was the "big room". Rosie welco
 "What an amazing house" I said, with full sincerity.<br>
 "Thank you very much indeed" said Rosie.
 
-<img src="/career-breaking/assets/images/big_room.jpg" class="img-responsive">
+<img src="/career-breaking/assets/images/big_room.jpeg" class="img-responsive">
 
 Along with this minor concern, my mind was racing through a number of others; what were the other volunteers like? How would Rouven's high octane German-ness go down? (He was technically my guest after all), but most importantly, were Rosie and Mike crazy?<br>
 This last question was addressed when Rosie gave us our first instructions.<br>
