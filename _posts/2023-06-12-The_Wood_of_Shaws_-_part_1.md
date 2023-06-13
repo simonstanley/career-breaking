@@ -14,8 +14,20 @@ Along with this minor concern, my mind was racing through a number of others; wh
 This last question was addressed when Rosie gave us our first instructions.<br>
 "If you could come through to the main room and sit at the table, I'll let the dogs in to meet you... But just ignore them. In particular the Collie, he might go for you if you try to stroke him. Just sit there and let him sniff you."<br>
 To be fair, I had been warned about this, but Rouven, who had previously mentioned in passing he was not particularly relaxed around dogs, sat stiff.<br>
-At this point I will mention that the Collie was called Ruben... you can imagine all the Rouven/Ruben confusion we were destined for.<br>
-But the canine introduction went well. Mike sat at the table with us and provided the pleasant small talk so the hounds could sniff our bits unhindered. There were three in total, Ruben the Collie, and Sprout and Maddie, the mongrel brother and sister, their exact breed unknown but the colouring of German shepherd. Sprout was the biggest of them, also the most docile, and also the most interested in sniffing nuts. Maddie was the smallest, her temperament a bit sharper, more untamed and independent. Ruben was an old dog at 14, he'd had a troubled start to life, hence the careful introduction, but in my whole time there I never saw the ferrel side to him Rosie had warned me about. He hobbled around us with his weak back legs sniffing away quite politely. My relationship with all three would grow enormously over the coming weeks.
+At this point I will mention that the Collie was called Ruben... you can imagine all the Rouven/Ruben confusion we were destined for.
+
+
+But the canine introduction went well. Mike sat at the table with us and provided the pleasant small talk so the hounds could sniff our bits unhindered. There were three in total, Ruben the Collie, and Sprout and Maddie, the mongrel brother and sister, their exact breed unknown but the colouring of German shepherd.
+
+<br>
+Sprout was the biggest of them, also the most docile, and also the most interested in sniffing nuts.
+
+
+
+
+<img src="/career-breaking/assets/images/Sprout_bed.jpeg" class="img-responsive">
+
+Maddie was the smallest, her temperament a bit sharper, more untamed and independent. Ruben was an old dog at 14, he'd had a troubled start to life, hence the careful introduction, but in my whole time there I never saw the ferrel side to him Rosie had warned me about. He hobbled around us with his weak back legs sniffing away quite politely. My relationship with all three would grow enormously over the coming weeks.
 
 Next were the other volunteers, across from the large wooden dining table where we sat was the kitchen area, there waiting there turn were Justin, an Irishman about my age and stature but with greying hair, and his girlfriend Charly, a Canadian with long brown hair, standing around three quarters his height and a distinct bullring piercing. They had arrived a week earlier. I smiled eagerly at them both, but only had time for brief hellos before Rosie led us to our room upstairs. We dropped off our bags and commenced a tour of the grounds.
 
