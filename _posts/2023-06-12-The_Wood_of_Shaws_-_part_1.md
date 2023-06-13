@@ -27,7 +27,17 @@ Sprout was the biggest of them, also the most docile, and also the most interest
 
 <img src="/career-breaking/assets/images/Sprout_bed.jpeg" class="img-responsive">
 
-Maddie was the smallest, her temperament a bit sharper, more untamed and independent. Ruben was an old dog at 14, he'd had a troubled start to life, hence the careful introduction, but in my whole time there I never saw the ferrel side to him Rosie had warned me about. He hobbled around us with his weak back legs sniffing away quite politely. My relationship with all three would grow enormously over the coming weeks.
+<br>
+Maddie was the smallest, her temperament a bit sharper, more untamed and independent. 
+
+
+<img src="/career-breaking/assets/images/Maddie_bed.jpeg" class="img-responsive">
+
+Ruben was an old dog at 14, he'd had a troubled start to life, hence the careful introduction, but in my whole time there I never saw the ferrel side to him Rosie had warned me about. He hobbled around us with his weak back legs sniffing away quite politely. My relationship with all three would grow enormously over the coming weeks.
+
+<br>
+Ruben keeping an eye on the garden
+<img src="/career-breaking/assets/images/Ruben_window.jpeg" class="img-responsive">
 
 Next were the other volunteers, across from the large wooden dining table where we sat was the kitchen area, there waiting there turn were Justin, an Irishman about my age and stature but with greying hair, and his girlfriend Charly, a Canadian with long brown hair, standing around three quarters his height and a distinct bullring piercing. They had arrived a week earlier. I smiled eagerly at them both, but only had time for brief hellos before Rosie led us to our room upstairs. We dropped off our bags and commenced a tour of the grounds.
 
