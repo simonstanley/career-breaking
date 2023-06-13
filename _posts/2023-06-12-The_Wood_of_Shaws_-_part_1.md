@@ -1,13 +1,12 @@
 ---
-
 layout: post
-
 title: The Wood of Shaws - Part 1
-
 ---
 My very first impression for my coming six weeks was the "big room". Rosie welcomed me and Rouven in through the back door and there before us was a giant book shelf covering half the opposite wall, floor to ceiling, filled with an array of hard back books. To the right sat a pristine cream sofa suite neatly positioned around a black wood burner, with a wicker basket filled with logs. Up on the walls to the left hung trophied antlers beneath an old rifle displayed on two wooden brackets. I couldn't help flinch at the disparity between the "off-grid", hard grind living I'd been preaching this year was all about and the clearly luxurious abode I had booked myself into.<br>
 "What an amazing house" I said, with full sincerity.<br>
 "Thank you very much indeed" said Rosie.
+
+<img src="/career-breaking/assets/images/big_room.jpg" class="img-responsive">
 
 Along with this minor concern, my mind was racing through a number of others; what were the other volunteers like? How would Rouven's high octane German-ness go down? (He was technically my guest after all), but most importantly, were Rosie and Mike crazy?<br>
 This last question was addressed when Rosie gave us our first instructions.<br>
@@ -100,5 +99,3 @@ They were genuine friends.
 While we admired the bonfire we all felt the missing ingredient, nice cold, frosty beers. Well I say that, turns out Justin is perhaps the only Irishman that doesn't like beer (including Guinness), but instead opts for the extra sweet and fruity ciders. Regardless, we vowed that evening that we'd get some drinks in and have an evening sesh at the next convenience.
 
 My opening weeks at the Wood of Shaws had gone from strength to strength. The routine of no alarms, sensational food, and extraordinary company had launched me into an excellent start to the year (albeit far more luxurious than expected). But the number one take away that kept a smile on my face was the fact the whole thing was stress free... and isn't that really the ultimate goal in life? It certainly is for me.
-
-
