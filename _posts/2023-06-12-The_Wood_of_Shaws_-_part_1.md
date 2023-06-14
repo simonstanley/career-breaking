@@ -2,7 +2,7 @@
 layout: post
 title: The Wood of Shaws - Part 1
 ---
-My very first impression for the coming six weeks was the "big room". Rosie welcomed me and Rouven in through the back door where four book shelves braced the corners of the room, floor to ceiling, filled with an array of hard back books. In front of these sat a pristine cream/white sofa suite, all neatly positioned around a black wood burner. Up on the walls to the left hung magnificent portraits in varying styles, along side trophied antlers beneath an old rifle displayed on two wooden brackets. I couldn't help flinch at the disparity between the "off-grid", hard grind living I'd been preaching this year was all about and the clearly luxurious abode I found myself in.<br>
+My very first impression for the coming six weeks was the "big room". Rosie welcomed me and Rouven in through the back door where book shelves braced the corners of the room, floor to ceiling, filled with an array of hard back books. In front of these sat a pristine cream/white sofa suite, all neatly positioned around a black wood burner. Up on the walls to the left hung magnificent portraits in varying styles, along side trophied antlers beneath an old rifle displayed on two wooden brackets. I couldn't help flinch at the disparity between the "off-grid", hard grind living I'd been preaching this year was all about and the clearly luxurious abode I found myself in.<br>
 "What an amazing house" I said, with full sincerity.<br>
 "Thank you very much indeed" said Rosie.
 
