@@ -83,7 +83,7 @@ Next were the sheep. They had 5, Big Lou, Tino, Dooy, Louy and Elizabeth. They t
 "I'm the boss" he seemed to answer.
 
 <br>
-Raffles
+Raffles in his paddock
 <img src="/career-breaking/assets/images/Raffles.jpeg" class="img-responsive">
 
 <br>
