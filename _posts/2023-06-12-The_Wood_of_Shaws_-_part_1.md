@@ -98,6 +98,12 @@ In the other direction downhill from the house, was the bee garden, an area devo
 Entrance to the bee garden 
 <img src="/career-breaking/assets/images/bee_garden.jpeg" class="img-responsive">
 
+<br>
+
+Looking down across the woodland to the lower field and the river Devron
+
+<img src="/career-breaking/assets/images/lower_field.jpeg" class="img-responsive">
+
 Dinner was at 6:30pm, we all sat down round the big wooden table and Mike carried over a huge casserole dish filled to the brim with a lentil satay curry, served with rice. After a few days of pasta and porridge, the smell and aesthetic of the thing was enough to bring a tear to my eye, but the taste left me speechless. Well, at first, once a few mouthfuls had gone down I began the onslaught of compliments, which Mike, seated at the head of the table, gracefully received.
 
 Mike was a stout man with a proud posture, somewhere in his 50's (I'd guess). He wore a comfortable shirt, unbuttoned at the top, and was the breed of man that kept a handkerchief handy. He hailed from Cambridgeshire and spoke with the kind of grand queen's English you'd find in high society, saying yup instead of yes, and clearing his throat thoroughly before speaking. But don't let this paint the picture of a serious man. Half of everything he said was nonsense and that frequently included him dictating aloud the animal's thoughts.<br>
