@@ -15,7 +15,7 @@ This last question was addressed when Rosie gave us our first instruction.<br>
 "If you could come through to the main room and sit at the table, I'll let the dogs in to meet you... But just ignore them, in particular the Collie. He might go for you if you try to stroke him so just sit there and let him sniff you."<br>
 To be fair, I had been warned about this, but Rouven, who had previously mentioned in passing he was not particularly relaxed around dogs, sat stiff.<br>
 At this point I will mention that the Collie was called Ruben, so you can imagine all the Rouven/Ruben confusion we were destined for.<br>
-The canine introduction went well. Mike sat at the table with us and provided the pleasant small talk so the hounds could sniff our bits unhindered. There were three in total, Ruben the Collie, and Sprout and Maddie, the mongrel brother and sister, their exact breed unknown but the colouring of German shepherds.
+The canine introduction went well. Mike sat at the table with us and provided pleasant small talk so that the hounds could sniff our bits unhindered. There were three in total, Ruben the Collie, and Sprout and Maddie, the mongrel brother and sister, their exact breed unknown but the colouring of German shepherds.
 
 <br>
 Sprout was the biggest of them, also the most docile... and also the most interested in sniffing nuts.
