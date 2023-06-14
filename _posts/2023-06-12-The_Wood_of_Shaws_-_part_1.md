@@ -149,10 +149,10 @@ On top of the routines were various one off jobs that needed tackling. The river
 
 Over the first two weeks I got to know Justin and Charly more. They had first met on a guided tour in Amsterdam, but living either side of the Atlantic meant the relationship was slow to flourish and indeed didn't really kick off until a year later when they met again in Panama. Since then they had roughly split their time between Canada, Ireland, and travelling. One of my interests coming into this was the people I'd meet and in particular their reasons for doing this kind of work. Justin and Charly's reason was essentially to provide cheap travel so they could be together more. There are many types of partnerships and lots of ways that relationships can be built and maintained. It was clear from the start that these two were in the type of relationship I most admire, one that involved a rather healthy helping of laughter. In fact, Charly put it very nicely in one conversation we had.<br>
 "Me and Justin would still hang out with each if we weren't together."<br>
-They were genuine best friends.
+They were genuinely best friends.
 
 While we admired the bonfire we all felt the missing ingredient... cold, frosty beers. Well I say that, turns out Justin is perhaps the only Irishman that doesn't like beer (including Guinness), but instead opts for the extra sweet and fruity ciders. Regardless, we vowed that evening that we'd get some drinks in and have an evening sesh at the next convenience. Which is exactly what we did, to our peral, but that's a story for next time.
 
-And so, my opening weeks at the Wood of Shaws had gone from strength to strength. The routine of no alarms, sensational food, and extraordinary company had launched me into an excellent start to the year (albeit far more luxurious than expected). But the number one take away that kept a smile on my face was the fact the whole thing was pretty much stress free... certainly an attribute I wanted to carry through for the whole year, and if at all possible, the rest of my life.
+And so, my opening weeks at the Wood of Shaws had gone from strength to strength. The routine of no alarms, sensational food, and extraordinary company had launched me into an excellent start to the year (albeit far more luxurious than expected). But the number one take away that kept a smile on my face was the fact the whole thing was pretty much entirely stress free... certainly an attribute I wanted to carry through for the whole year, and if at all possible, the rest of my life.
 
-<img src="/career-breaking/assets/images/wood_axe.jpeg" class="img-responsive">
+<img src="/career-breaking/assets/images/path_to_house.jpeg" class="img-responsive">
