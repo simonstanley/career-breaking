@@ -16,21 +16,13 @@ This last question was addressed when Rosie gave us our first instructions.<br>
 To be fair, I had been warned about this, but Rouven, who had previously mentioned in passing he was not particularly relaxed around dogs, sat stiff.<br>
 At this point I will mention that the Collie was called Ruben... you can imagine all the Rouven/Ruben confusion we were destined for.
 
-
 But the canine introduction went well. Mike sat at the table with us and provided the pleasant small talk so the hounds could sniff our bits unhindered. There were three in total, Ruben the Collie, and Sprout and Maddie, the mongrel brother and sister, their exact breed unknown but the colouring of German shepherds.
 
 <br>
 Sprout was the biggest of them, also the most docile... and also the most interested in sniffing nuts.
-
-
-
-
 <img src="/career-breaking/assets/images/Sprout_bed.jpeg" class="img-responsive">
 
-<br>
-Maddie was the smallest, her temperament a bit sharper, more untamed and independent. 
-
-
+Maddie was the smallest, her temperament a bit sharper, more untamed and independent.
 <img src="/career-breaking/assets/images/Maddie_bed.jpeg" class="img-responsive">
 
 Ruben was an old dog at fourteen, he'd had a troubled start to life, hence the careful introduction, but in my whole time there I never saw the ferrel side to him Rosie had warned me about. He hobbled around us with his weak back legs sniffing away quite politely. My relationship with all three would grow enormously over the coming weeks.
@@ -47,10 +39,8 @@ The house itself had been renovated to a high standard, wooden floors, white wal
 The main room and the dinner table
 <img src="/career-breaking/assets/images/main_room.jpeg" class="img-responsive">
 
-
 The entire small holding was situation on a slope. Uphill from the house was the courtyard with a barn, wood stack storage and tool shed(s).
 <img src="/career-breaking/assets/images/barn.jpeg" class="img-responsive">
-
 
 Beside this stood the fenced chicken run complete with two coups.
 <img src="/career-breaking/assets/images/chicken_run.jpeg" class="img-responsive">
@@ -72,8 +62,6 @@ I enquired why they had Raffles (and Harry) in the first place.<br>
 "Isn't that right Rafs" said Mike, giving him another scratch around the ears, to which he 
 bucked his head up. I couldn't tell if he was nodding in agreement, or trying to indicate all these breaks in the grooming were simply not acceptable.
 
-
-
 Next were the sheep. They had 5, Big Lou, Tino, Dooy, Louy and Elizabeth. They trotted straight up to us and began sniffing us like the dogs had. In fact I was struck by their general dog like behaviour, nuzzling in for a scratch on the head and sniffing around for treats.<br>
 "They were all hand reared" Rosie explained "hence their friendliness... except Elizabeth" I looked up to see the fifth sheep staring at us nervously from a distance.<br>
 "Hello Elizabeth" I called, waving. She jolted at the gesture and ran away.<br>
@@ -86,10 +74,7 @@ Next were the sheep. They had 5, Big Lou, Tino, Dooy, Louy and Elizabeth. They t
 Raffles in his paddock
 <img src="/career-breaking/assets/images/Raffles.jpeg" class="img-responsive">
 
-<br>
-
 Selfie with Big Lou
-
 <img src="/career-breaking/assets/images/Lou_selfie.jpeg" class="img-responsive">
 
 In the other direction downhill from the house, was the bee garden, an area devoted to bee friendly flowers. Surrounding this was the woodland, originally planned for coppicing but as mentioned, no longer actively managed and left for nature. Finally, at the very bottom of the valley, sitting beside the river Devron, was the 5 acre grass field for growing hay. And guess who all that hay was for.
@@ -98,10 +83,7 @@ In the other direction downhill from the house, was the bee garden, an area devo
 Entrance to the bee garden 
 <img src="/career-breaking/assets/images/bee_garden.jpeg" class="img-responsive">
 
-<br>
-
 Looking down across the woodland to the lower field and the river Devron
-
 <img src="/career-breaking/assets/images/lower_field.jpeg" class="img-responsive">
 
 Dinner was at 6:30pm, we all sat down round the big wooden table and Mike carried over a huge casserole dish filled to the brim with a lentil satay curry, served with rice. After a few days of pasta and porridge, the smell and aesthetic of the thing was enough to bring a tear to my eye, but the taste left me speechless. Well, at first, once a few mouthfuls had gone down I began the onslaught of compliments, which Mike, seated at the head of the table, gracefully received.
@@ -136,11 +118,10 @@ Ready for the chop
 Rouven had the less satisfying task of sweeping the drive, and collecting twigs from the lawn (to clear it for the lawnmower). He of course had a cycling holiday to continue with and so just stayed for three days. He continued to entertain us at dinner by injecting conversation with baffling anecdotes about the obvious flaws in the latest firewall technology...<br>
 "Zay seem to sink zat leaving zee encrypted file under root permissions vill stop zee hackers... ha ha ha ha"<br>
 It was true mastery of conversation murder.<br>
-Day four was departure day for him. His legs and bum had fully recovered and so was fit and ready to embark towards the Highlands. A beautiful sunny day saw him off and we exchanged our fond farewells. As he turned the first corner up towards the steep drive, I swear I heard his navigation device beeping frantically as he announced to himself "Incline up ahead, 15%".<br>
+Day four was departure day for him. His legs and bum had fully recovered and so was fit and ready to embark into the Highlands. A beautiful sunny day saw him off and we exchanged our fond farewells. As he turned the first corner up towards the steep drive, I swear I heard his navigation device beeping frantically as he announced to himself "Incline up ahead, 15%".<br>
 Rouven was my German cycling angel. Like any true heavenly messenger, he arrived at the perfect time and showed me great wisdom. With cycle touring he taught me about pace, safety and the power of company, but perhaps more importantly he demonstrated a great life lesson. For all the times I sniggered at his over caution, or rolled my eyes at his detailed monologues on cyber security, he was always being exactly who he was, unashamedly, and that really is what makes people and life, a hell of lot more interesting.
 
-Over the following week the jobs came in in a wide variety. The regular tasks were watering, weeding and housework... I must admit I flinched when I found myself cleaning the toilet on day three, however quickly backtracked on this when I realised it was my middle class pride  implying I was somehow above it... but the key daily activity was mucking out the stables.
-<br>
+Over the following week the jobs came in in a wide variety. The regular tasks were watering, weeding and housework... I must admit I flinched when I found myself cleaning the toilet on day three, however quickly backtracked on this when I realised it was my middle class pride  implying I was somehow above it... but the key daily activity was mucking out the stables.<br>
 This was a routine that Justin and Charly had taken the reigns on. Now I love animals. My exposure had mainly been with dogs and cats but it was a genuine life interest of mine to get to know a donkey.. well if I'm honest, a horse was the actual interest, but tomatos tomartos right?<br≥ Needless to say, I was keen to be involved in that chore, but was ignorant as to what it actually involved. I did however, receive one snippet of insight when overhearing Justin questioning Mike.<br>
 "Ur Mike... When we apply da cream to Raffles's... urrr... penis... Are we supposed to rub it all over, or just like, around?"<br>
 "Oh, yup, no, just on the skin around it."
@@ -164,15 +145,14 @@ Selfie with Raffles hanging his head out the stables (like a good boy)
 <img src="/career-breaking/assets/images/Raffles_selfie.jpeg" class="img-responsive">
 
 On top of the routines were various one off jobs that needed tackling. The river had broken its banks in the previous winter and left debris on the hay field, so the first big task of the stay, before the grass shot up, was to rake this all up, and along with great trunks of driftwood, create a huge bonfire. The raking and collecting stage was the classic labour I'd be craving, while the satisfaction of setting it ablaze was pure caveman porn. The three of us were very proud of our fire...
-
-
-
 <img src="/career-breaking/assets/images/bonfire.jpeg" class="img-responsive">
 
 Over the first two weeks I got to know Justin and Charly more. They had first met on a guided tour in Amsterdam. Living either side of the Atlantic meant the relationship was slow to flourish and indeed didn't really kick off until a year later when they met again in Panama. Since then they had roughly split their time between Canada, Ireland, and travelling. One of my interests coming into this was the people I'd meet and in particular their reasons for doing this kind of work. Justin and Charly's reason was essentially to provide cheap travel so they could be together more. There are many types of partnerships and lots of ways that relationships can be built and maintained. It was clear from the start that these two were in the type of relationship I most admire, one that involved a rather healthy helping of laughter. In fact, Charly put it very nicely in one conversation we had.<br>
 "I'd still hang out with Justin if he wasn't my boyfriend."<br>
-They were genuine friends.
+They were genuine best friends.
 
 While we admired the bonfire we all felt the missing ingredient, nice cold, frosty beers. Well I say that, turns out Justin is perhaps the only Irishman that doesn't like beer (including Guinness), but instead opts for the extra sweet and fruity ciders. Regardless, we vowed that evening that we'd get some drinks in and have an evening sesh at the next convenience.
 
 And so, my opening weeks at the Wood of Shaws had gone from strength to strength. The routine of no alarms, sensational food, and extraordinary company had launched me into an excellent start to the year (albeit far more luxurious than expected). But the number one take away that kept a smile on my face was the fact the whole thing was pretty much stress free... and isn't that really the ultimate goal in life? It certainly is for me.
+
+<img src="/career-breaking/assets/images/wood_axe.jpeg" class="img-responsive">
