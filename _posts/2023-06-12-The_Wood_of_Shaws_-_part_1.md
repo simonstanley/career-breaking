@@ -30,7 +30,7 @@ Ruben was an old dog at fourteen, he'd had a troubled start to life, hence the c
 Ruben keeping an eye on the garden
 <img src="/career-breaking/assets/images/Roben_window.jpeg" class="img-responsive">
 
-Next were the other volunteers, across from the large wooden dining table where we sat was the kitchen area, there waiting there turn were Justin, an Irishman about my age and stature but with greying hair, and his girlfriend Charly, a Canadian with long brown hair, standing around three quarters Justin's height and a distinct bullring piercing. They had arrived a week earlier. I smiled eagerly at them both, but only had time for brief hellos before Rosie led us to our room upstairs. We swiftly dropped off our bags and commenced a tour of the grounds.
+Next were the other volunteers, across from the large wooden dining table where we sat was the kitchen area, there waiting their turn were Justin, an Irishman about my age and stature but with greying hair, and his girlfriend Charly, a Canadian with long brown hair, standing around three quarters Justin's height and a distinct bullring piercing. They had arrived a week earlier. I smiled eagerly at them both, but only had time for brief hellos before Rosie led us to our room upstairs. We swiftly dropped off our bags and commenced a tour of the grounds.
 
 The house itself had been renovated to a high standard, wooden floors, white walls and large windows gave the country home an open and modern feel. The main layout was spread across one floor with Rosie and Mike's bedroom at one end, going through to their lounge, the kitchen/main room, then in into the so called "big room". The volunteer quarters occupied the whole upstairs where we had bedrooms to ourselves and a shared bathroom.
 
