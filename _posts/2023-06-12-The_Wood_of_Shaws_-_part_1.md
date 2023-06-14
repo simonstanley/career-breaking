@@ -2,7 +2,7 @@
 layout: post
 title: The Wood of Shaws - Part 1
 ---
-My very first impression for my coming six weeks was the "big room". Rosie welcomed me and Rouven in through the back door where four book shelfs covered the corners of the room, floor to ceiling, filled with an array of hard back books. To the right sat a pristine cream sofa suite neatly positioned around a black wood burner, with a wicker basket filled with logs. Up on the walls to the left hung trophied antlers beneath an old rifle displayed on two wooden brackets. I couldn't help flinch at the disparity between the "off-grid", hard grind living I'd been preaching this year was all about and the clearly luxurious abode I had booked myself into.<br>
+My very first impression for my coming six weeks was the "big room". Rosie welcomed me and Rouven in through the back door where four book shelfs covered the corners of the room, floor to ceiling, filled with an array of hard back books. In front of these sat a pristine cream sofa suite, all neatly positioned around a black wood burner, with a wicker basket filled to the brim with logs. Up on the walls to the left hung magnificent portraits in varying styles and trophied antlers beneath an old rifle displayed on two wooden brackets. I couldn't help flinch at the disparity between the "off-grid", hard grind living I'd been preaching this year was all about and the clearly luxurious abode I had booked myself into.<br>
 "What an amazing house" I said, with full sincerity.<br>
 "Thank you very much indeed" said Rosie.
 
@@ -17,10 +17,10 @@ To be fair, I had been warned about this, but Rouven, who had previously mention
 At this point I will mention that the Collie was called Ruben... you can imagine all the Rouven/Ruben confusion we were destined for.
 
 
-But the canine introduction went well. Mike sat at the table with us and provided the pleasant small talk so the hounds could sniff our bits unhindered. There were three in total, Ruben the Collie, and Sprout and Maddie, the mongrel brother and sister, their exact breed unknown but the colouring of German shepherd.
+But the canine introduction went well. Mike sat at the table with us and provided the pleasant small talk so the hounds could sniff our bits unhindered. There were three in total, Ruben the Collie, and Sprout and Maddie, the mongrel brother and sister, their exact breed unknown but the colouring of German shepherds.
 
 <br>
-Sprout was the biggest of them, also the most docile, and also the most interested in sniffing nuts.
+Sprout was the biggest of them, also the most docile... and also the most interested in sniffing nuts.
 
 
 
@@ -33,7 +33,7 @@ Maddie was the smallest, her temperament a bit sharper, more untamed and indepen
 
 <img src="/career-breaking/assets/images/Maddie_bed.jpeg" class="img-responsive">
 
-Ruben was an old dog at 14, he'd had a troubled start to life, hence the careful introduction, but in my whole time there I never saw the ferrel side to him Rosie had warned me about. He hobbled around us with his weak back legs sniffing away quite politely. My relationship with all three would grow enormously over the coming weeks.
+Ruben was an old dog at fourteen, he'd had a troubled start to life, hence the careful introduction, but in my whole time there I never saw the ferrel side to him Rosie had warned me about. He hobbled around us with his weak back legs sniffing away quite politely. My relationship with all three would grow enormously over the coming weeks.
 
 <br>
 Ruben keeping an eye on the garden
@@ -43,12 +43,27 @@ Next were the other volunteers, across from the large wooden dining table where 
 
 The house itself had been renovated to a high standard, wooden floors, white walls and large windows gave the country house an open and modern feel. The main layout was spread across one floor. Rosie and Mike's bedroom at one end, going through to their lounge, the kitchen/main room, then in into the so called "big room". The volunteer quarters occupied the whole upstairs where we had bedrooms to ourselves and a shared bathroom.
 
-The entire small holding was situation on a slope. Uphill from the house was the courtyard with a barn, wood stack storage and tool shed(s). Beside this stood the fenced chicken run complete with two coups.<br>
-Up from the courtyard was the veg garden containing a sizable greenhouse and a dozen or so plots for all the crops. Beside this lay the large orchard with an array of apple, pear, plum and cherry trees, all on the cusp of blossom. Finally, at the very top were the donkey and sheep stables, with grazing paddocks beyond.
+<br>
+The main room and the dinner table
+<img src="/career-breaking/assets/images/main_room.jpeg" class="img-responsive">
+
+
+The entire small holding was situation on a slope. Uphill from the house was the courtyard with a barn, wood stack storage and tool shed(s).
+<img src="/career-breaking/assets/images/barn.jpeg" class="img-responsive">
+
+
+Beside this stood the fenced chicken run complete with two coups.
+<img src="/career-breaking/assets/images/chicken_run.jpeg" class="img-responsive">
+
+Up from the courtyard was the veg garden containing a sizable greenhouse and a dozen or so plots for all the crops.
+<img src="/career-breaking/assets/images/greenhouse.jpeg" class="img-responsive">
+
+Beside this lay the large orchard with an array of apple, pear, plum and cherry trees, all on the cusp of blossom. Finally, at the very top were the donkey and sheep stables, with grazing paddocks beyond.
 
 We walked up to these stables where Mike was now busy grooming the donkey, and Rosie introduced us.<br>
 "This is Raffles" she said.<br>
-Mike gave him an affectionate scratch and a squeeze around the head, "Are you going to say hello Rafs?".<br>
+Mike gave him an affectionate scratch and a squeeze around the head, 
+"Are you going to say hello Rafs?".<br>
 Raffles stood quite still, presumably waiting for the groom to continue.<br>
 She explained that sadly they lost their other donkey Harry a few months prior and Raffles, the poor fellow, had only just started getting back to normal. He had lost a lifelong friend in Harry and apparently if the grieving process is not handled correctly, donkeys can effectively die of a broken heart. Their clear sorrow for loosing Harry, and the careful nurture of Raffles through the process was my first glimpse into the affection Rosie and Mike had for him, in fact all their animals, but Raffles in particular, and as I came to see, he was the beating heart of the whole operation, and I couldn't help feel that Raffles knew it.
 
