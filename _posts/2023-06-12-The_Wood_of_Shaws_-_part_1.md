@@ -135,8 +135,9 @@ Ready for the chop
 
 Rouven had the less satisfying task of sweeping the drive, and collecting twigs from the lawn (to clear it for the lawnmower). He of course had a cycling holiday to continue with and so just stayed for three days. He continued to entertain us at dinner by injecting conversation with baffling anecdotes about the obvious flaws in the latest firewall technology...<br>
 "Zay seem to sink zat leaving zee encrypted file under root permissions vill stop zee hackers... ha ha ha ha"<br>
-It was true mastery of conversation murder. 
-Day four was departure day for him. His legs and bum had fully recovered at this point and so was fit and ready to head off. A beautiful sunny day saw him off. We said our farewells and off he went, up towards the steep drive leading past the stables and out to the open road. I like to imagine he turned the corner and announced to himself "Incline up ahead, 15%".
+It was true mastery of conversation murder.<br>
+Day four was departure day for him. His legs and bum had fully recovered and so was fit and ready to embark towards the Highlands. A beautiful sunny day saw him off and we exchanged our fond farewells. As he turned the first corner up towards the steep drive, I swear I heard his navigation device beeping frantically as he announced to himself "Incline up ahead, 15%".<br>
+Rouven was my German cycling angel. Like any true heavenly messenger, he arrived at the perfect time and showed me great wisdom. With cycle touring he taught me about pace, safety and the power of company, but perhaps more importantly he demonstrated a great life lesson. For all the times I sniggered at his over caution, or rolled my eyes at his detailed monologues on cyber security, he was always being exactly who he was, unashamedly, and that really is what makes people and life, a hell of lot more interesting.
 
 Over the following week the jobs came in in a wide variety. The regular tasks were watering, weeding and housework... I must admit I flinched when I found myself cleaning the toilet on day three, however quickly backtracked on this when I realised it was my middle class pride  implying I was somehow above it... but the key daily activity was mucking out the stables.
 
