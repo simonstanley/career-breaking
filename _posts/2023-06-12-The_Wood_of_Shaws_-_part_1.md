@@ -37,7 +37,7 @@ Ruben was an old dog at 14, he'd had a troubled start to life, hence the careful
 
 <br>
 Ruben keeping an eye on the garden
-<img src="/career-breaking/assets/images/Ruben_window.jpeg" class="img-responsive">
+<img src="/career-breaking/assets/images/Roben_window.jpeg" class="img-responsive">
 
 Next were the other volunteers, across from the large wooden dining table where we sat was the kitchen area, there waiting there turn were Justin, an Irishman about my age and stature but with greying hair, and his girlfriend Charly, a Canadian with long brown hair, standing around three quarters his height and a distinct bullring piercing. They had arrived a week earlier. I smiled eagerly at them both, but only had time for brief hellos before Rosie led us to our room upstairs. We dropped off our bags and commenced a tour of the grounds.
 
