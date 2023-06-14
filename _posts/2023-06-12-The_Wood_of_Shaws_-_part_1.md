@@ -119,8 +119,8 @@ I looked down to Maddie asleep by the wood burner.<br>
 My cheek muscles tighten into a smile as I tried to work out what to say. At this Rosie burst out laughing.<br>
 "You'll get used to it, we do this a lot".
 
-Rosie sat at the opposite end of the table from Mike, she had silver hair cut median short and wore thick rimmed rectangular glasses. Over the weeks we learned her incredible upbringing. Adopted by two adventurous parents, she spent her youth flying from place to place following her father's career as a pilot in the navy. Aside from the UK she had resided in Sweden, the middle east, west Africa and Canada and she had clearly inherited the boundaryless spirit in her own life. She was so open with us, so inquisitive and welcoming in having us stay, any feeling of getting in the way one might feel from taking full time residence in someone's home, was evaporated immediately by her generously gifted attention on us as individuals.<br>
-But there was also no denying a fire beneath the surface which would not suffer fools. This combination was enough to earn my utmost respect, the madness was a cherry on top.
+Rosie sat at the opposite end of the table from Mike, she had silver hair cut median short and wore thick rimmed rectangular glasses. Over the weeks we learned her incredible upbringing. Adopted by two adventurous parents, she spent her youth flying from place to place following her father's career as a pilot in the navy. Aside from the UK she had resided in Sweden, the middle east, west Africa and Canada and she had clearly inherited the boundaryless spirit in her own life. She was so open with us, so inquisitive and welcoming, any feeling of getting in the way one might feel from taking full time residence in someone's home, was evaporated immediately by her generously gifted attention on us as individuals.<br>
+At the same time there was no denying a fire beneath the surface which would not suffer fools. This combination was enough to earn my utmost respect, the madness was a cherry on top.
 
 After dinner and conversation we departed to our rooms for the evening.<br>
 "What time do we kick off tomorrow?" I asked.<br>
