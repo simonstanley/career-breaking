@@ -56,7 +56,7 @@ Beside this stood the fenced chicken run complete with two coups.
 <img src="/career-breaking/assets/images/chicken_run.jpeg" class="img-responsive">
 
 Up from the courtyard was the veg garden containing a sizable greenhouse and a dozen or so plots for all the crops.
-<img src="/career-breaking/assets/images/greenhouse.jpeg" class="img-responsive">
+<img src="/career-breaking/assets/images/greenhouse_outside.jpeg" class="img-responsive">
 
 Beside this lay the large orchard with an array of apple, pear, plum and cherry trees, all on the cusp of blossom. Finally, at the very top were the donkey and sheep stables, with grazing paddocks beyond.
 
@@ -65,30 +65,46 @@ We walked up to these stables where Mike was now busy grooming the donkey, and R
 Mike gave him an affectionate scratch and a squeeze around the head, 
 "Are you going to say hello Rafs?".<br>
 Raffles stood quite still, presumably waiting for the groom to continue.<br>
-She explained that sadly they lost their other donkey Harry a few months prior and Raffles, the poor fellow, had only just started getting back to normal. He had lost a lifelong friend in Harry and apparently if the grieving process is not handled correctly, donkeys can effectively die of a broken heart. Their clear sorrow for loosing Harry, and the careful nurture of Raffles through the process was my first glimpse into the affection Rosie and Mike had for him, in fact all their animals, but Raffles in particular, and as I came to see, he was the beating heart of the whole operation, and I couldn't help feel that Raffles knew it.
+She explained that sadly they had lost their other donkey Harry a few months prior and Raffles, the poor fellow, had only just started getting back to normal. He had lost a lifelong friend in Harry and apparently if the grieving process is not handled correctly, donkeys can effectively die of a broken heart. Their clear sorrow for loosing Harry, and the careful nurture of Raffles through the process was my first glimpse into the affection Rosie and Mike had for him, in fact all their animals, but Raffles in particular, and as I came to see, he was the beating heart of the whole operation. I just couldn't help feeling that Raffles knew it.
 
 I enquired why they had Raffles (and Harry) in the first place.<br>
 "We bought them to help with coppicing, but it hasn't worked out so we keep him as a pet really, and we just love him"<br>
-"Isn't that right Rafs" said Mike, giving him another scratch round the ears.<br>
-He bucked his head up. I couldn't tell if he was nodding in agreement, or trying to indicate all these breaks in the grooming were simply not acceptable.
+"Isn't that right Rafs" said Mike, giving him another scratch around the ears, to which he 
+bucked his head up. I couldn't tell if he was nodding in agreement, or trying to indicate all these breaks in the grooming were simply not acceptable.
+
+
 
 Next were the sheep. They had 5, Big Lou, Tino, Dooy, Louy and Elizabeth. They trotted straight up to us and began sniffing us like the dogs had. In fact I was struck by their general dog like behaviour, nuzzling in for a scratch on the head and sniffing around for treats.<br>
 "They were all hand reared" Rosie explained "hence their friendliness... except Elizabeth" I looked up to see the fifth sheep staring at us nervously from a distance.<br>
-"Hello Elizabeth" I called, waving. She flinched at the gesture and ran away.<br>
+"Hello Elizabeth" I called, waving. She jolted at the gesture and ran away.<br>
 "Do you use the sheep for wool?" I asked, figuring it a silly question.<br>
 "Not really" replied Rosie, "we sheared them once but really they're just to keep the grass down so Raffles doesn't eat too much or get a hoof infection, which they can get if the grass is left to grow too long".<br>
 "Oh", I said. Who the hell is this Donkey? I thought to myself. I looked over my shoulder to see Raffles staring at me deadpan, his jaw crunching in circles on fresh hay while Mike was bent over at his side, busy applying special cream to his penis.<br>
 "I'm the boss" he seemed to say.
 
+<br>
+Raffles
+<img src="/career-breaking/assets/images/Raffles.jpeg" class="img-responsive">
+
+<br>
+
+Selfie with Big Lou
+
+<img src="/career-breaking/assets/images/Lou_selfie.jpeg" class="img-responsive">
+
 In the other direction downhill from the house, was the bee garden, an area devoted to bee friendly flowers. Surrounding this was the woodland, originally planned for coppicing but as mentioned, no longer actively managed and left for nature. Finally, at the very bottom of the valley, sitting beside the river Devron, was the 5 acre grass field for growing hay. And guess who all that hay was for.
+
+<br>
+Entrance to the bee garden 
+<img src="/career-breaking/assets/images/bee_garden.jpeg" class="img-responsive">
 
 Dinner was at 6:30pm, we all sat down round the big wooden table and Mike carried over a huge casserole dish filled to the brim with a lentil satay curry, served with rice. After a few days of pasta and porridge, the smell and aesthetic of the thing was enough to bring a tear to my eye, but the taste left me speechless. Well, at first, once a few mouthfuls had gone down I began the onslaught of compliments, which Mike, seated at the head of the table, gracefully received.
 
-Mike was a stout man with a proud posture, somewhere in his 50's (I'd guess). He wore a comfortable shirt, unbuttoned at the top, and was the breed of man that kept a handkerchief handy. He hailed from Cambridgeshire and spoke with the kind of grand queen's English you'd find in high society, saying yup instead of yes, and clearing his throat thoroughly before speaking. But don't let this paint the picture of seriousness. Half of everything he said was nonsense and he frequently dictated aloud the animal's thoughts.<br>
-"Maddie says it's been a hot day today and she'd like a brandy", he'd say.<br>
-At first I looked at this just as baffled as you probably are reading it. But then Rosie would join in.<br>
+Mike was a stout man with a proud posture, somewhere in his 50's (I'd guess). He wore a comfortable shirt, unbuttoned at the top, and was the breed of man that kept a handkerchief handy. He hailed from Cambridgeshire and spoke with the kind of grand queen's English you'd find in high society, saying yup instead of yes, and clearing his throat thoroughly before speaking. But don't let this paint the picture of a serious man. Half of everything he said was nonsense and that frequently included him dictating aloud the animal's thoughts.<br>
+"Maddie says it's been a hot day today and she'd like a brandy", he once said.<br>
+At first I was just as baffled as you probably are reading it. But then Rosie joined in.<br>
 "Sprout says Maddie drank all the brandy last week so she'll just have to do with vodka"<br>
-"Maddie says that's fine" Mike would reply.<br>
+"Maddie says that's fine" Mike replied.
 
 I couldn't tell if this was some strange indirect way of Mike and Rosie agreeing to cracking out the vodka that evening. Were they alcoholics? Yes or no, this exchange confirmed the madness. Seeing the confusion, and probably the hint of worry on my face, Rosie turned to provide the explanation.<br>
 "Maddie's an alcoholic you see".<br>
@@ -98,7 +114,7 @@ My cheek muscles tighten into a smile as I tried to work out what to say. At thi
 "You'll get used to it, we do this a lot".
 
 Rosie sat at the opposite end of the table from Mike, she had silver hair cut median short and wore thick rimmed rectangular glasses. Over the weeks we learned her incredible upbringing. Adopted by two adventurous parents, she spent her youth flying from place to place following her father's career as a pilot in the navy. Aside from the UK she had resided in Sweden, the middle east, west Africa and Canada and she had clearly inherited the boundaryless spirit in her own life. She was so open with us, so inquisitive and welcoming in having us stay, any feeling of getting in the way one might feel from taking full time residence in someone's home, was evaporated immediately by her generously gifted attention on us as individuals.<br>
-But there was also no denying a fire beneath the surface which would not suffer fools. This combination was enough to earn my utmost respect, the madness was now a cherry on top.
+But there was also no denying a fire beneath the surface which would not suffer fools. This combination was enough to earn my utmost respect, the madness was a cherry on top.
 
 After dinner and conversation we departed to our rooms for the evening.<br>
 "What time do we kick off tomorrow?" I asked.<br>
@@ -107,31 +123,43 @@ After dinner and conversation we departed to our rooms for the evening.<br>
 
 The very first task I was set next day was to split wood. Mike took me up to the wood stack and showed me the axe, what a mighty tool, and a fine start I thought. Here's the quintessential off grid job, and a chance to feel like a man... Of course nothing's quite as emasculating as a swing and a miss, but three in a row really knocks you down a peg. Luckily Mike had left me to it so I avoided giving off a terrible first impression.
 
-Rouven had the less satisfying task of sweeping the drive, and collecting twigs from the lawn (to clear it for the lawnmower). He of course had a cycling holiday to continue with and so just stayed for three days doing more menial tasks like this. I had grown very fond of him on the journey up, but my focus had switched so much towards my coming 6 weeks that I must admit my attention towards him had somewhat drifted. He continued to entertain us at dinner by injecting conversation with baffling anecdotes about the obvious flaws in the latest firewall technology...<br>
+<br>
+Ready for the chop
+<img src="/career-breaking/assets/images/wood_axe.jpeg" class="img-responsive">
+
+Rouven had the less satisfying task of sweeping the drive, and collecting twigs from the lawn (to clear it for the lawnmower). He of course had a cycling holiday to continue with and so just stayed for three days. He continued to entertain us at dinner by injecting conversation with baffling anecdotes about the obvious flaws in the latest firewall technology...<br>
 "Zay seem to sink zat leaving zee encrypted file under root permissions vill stop zee hackers... ha ha ha ha"<br>
-It was true mastery of conversation murder. He was such a skilled dialog assassin that in its own way it was really quite beautiful to watch.<br>
-Day four was departure day for Rouven. His legs and bum had fully recovered at this point so he was fit and ready and a sunny day saw him off. We said our farewells and off he went, up towards the steep drive leading past the stables and out to the open road. I like to imagine he turned the corner and announced to himself "Incline up ahead, 15%".
+It was true mastery of conversation murder. 
+Day four was departure day for him. His legs and bum had fully recovered at this point and so was fit and ready to head off. A beautiful sunny day saw him off. We said our farewells and off he went, up towards the steep drive leading past the stables and out to the open road. I like to imagine he turned the corner and announced to himself "Incline up ahead, 15%".
 
 Over the following week the jobs came in in a wide variety. The regular tasks were watering, weeding and housework... I must admit I flinched when I found myself cleaning the toilet on day three, however quickly backtracked on this when I realised it was my middle class pride  implying I was somehow above it... but the key daily activity was mucking out the stables.
 
-This was a daily routine that Justin and Charly had taken the reigns on. Now I love animals. My exposure had mainly been with dogs and cats and it was a genuine life interest of mine to get to know a donkey.. well if I'm honest, a horse was the actual interest, but tomatos tomartos right? But needless to say, I was keen to be involved in that chore, but was ignorant as to what it actually involved. I did however, receive one snippet of insight when overhearing Justin questioning Mike.<br>
+This was a daily routine that Justin and Charly had taken the reigns on. Now I love animals. My exposure had mainly been with dogs and cats and it was a genuine life interest of mine to get to know a donkey.. well if I'm honest, a horse was the actual interest, but tomatos tomartos right? Needless to say, I was keen to be involved in that chore, but was ignorant as to what it actually involved. I did however, receive one snippet of insight when overhearing Justin questioning Mike.<br>
 "Ur Mike... When we apply da cream for Raffles's... urrr... penis... Are we supposed to rub it all over?"<br>
 "Oh, yup, no, just on the skin around it."
 "... Ah."<br>
 It made sense to me now why Raffles was so fond of Justin and Charly doing his morning groom, but eventually I was tasked to take Charly's place for the day and find it all out for myself.
 
-It was essentially three fold; groom Raffles, collect his poo, and make him a fresh bed. However before any of that could happen, he would need to be brought out of his stable and into the yard. This first step was completely on Raffles's terms. Before we could open his stable door we needed his harness on, and for that we needed him to stick his head out the door and keep it there. And he would do this, very nicely, like a good Raffles, but at the last minute, as the straps are just about round the ears decide to jolt back in and duck his head away. You know, just because. On some days this dance could go on for 10/15 minutes. Once on we could open the door and lead him out to the yard, tie him up and begin the grooming... Unless of course we open the door and he just stands there. Don't get me wrong, he knew what he was doing, he was definitely a smart donkey and knew what the routine was all about. And my first piece of donkey knowledge was realising their mass. All this had to be on his terms, there was no way he could be manhandled. Just leaning against him was enough feel his unmovable weight. So, once Raffles felt good and ready, he'd walk out and wait to be pampered.
+It was essentially three fold; groom Raffles, collect his poo, and make him a fresh bed. However, before any of that could happen, he would need to be brought out of his stable and into the yard. This first step was completely on Raffles's terms. Before we could open his stable door we needed his harness on, and for that we needed him to stick his head out the door and keep it there. And he would do this, very nicely, like a good Raffles, but at the last minute, as the straps are just about round the ears decide to jolt back in and duck his head away. You know, just because. On some days this dance could go on for 10/15 minutes. Once on we could open the door and lead him out to the yard, tie him up and begin the grooming... Unless of course we open the door and he just stands there. Don't get me wrong, he knew what he was doing, he was definitely a smart donkey and knew what the routine was all about. My first piece of donkey knowledge was realising their mass. All this had to be on his terms, there was no way he could be manhandled. Just leaning against him was enough feel his unmovable weight. So, once Raffles felt good and ready, he'd walk out and wait to be pampered.
 
-The grooming routine was thorough. A full dry brush through of his coat, followed by a second using the florally scented tea tree oil (to detract mites). Then came the creams, one was for his ears, chest, main and tail, the second for his inner ears and penis perimeter. One ready, we would lead him into the paddock (this again was in his own sweet time) where he'd spend the day with the sheep. Without fail, the first thing he'd do after all that careful prep was drop to the floor and roll over on his back in the mud. Of course this is all natural, and beneficial behaviour, but it was very hard to push away the feeling that it was his version of giving us the middle finger. A middle finger that stood strong as we'd scurry into his lair and find the inevitable present left piled up in the center... I'm talking about poo.
+The grooming routine was thorough. A full dry brush through of his coat, followed by a second brush through using aromatic tea tree oil (to detract mites). Then came the creams, one was for his outer ears, chest, mane and tail, the second for his inner ears and penis perimeter. One ready, we would lead him into the paddock (this again was in his own sweet time) where he'd spend the day with the sheep. Without fail, the first thing he'd do after all that careful prep was drop to the floor and roll over on his back in the mud. Of course this is all natural, and beneficial behaviour, but it was very hard to push away the feeling that it was his version of giving us the middle finger. A middle finger that stood strong as we'd scurry into his lair and find the inevitable present left piled up in the center... I'm talking about poo.
 
-For the next step, the aim of the game was to get all the straw, much of which was showered in piss, out and away and leave nothing but pure premium donkey dung to add to the ever growing pile. The first stage was done with pitch forks, lifting away the majority of the straw, but the final step required some surgical precision. With the use of disposable rubber gloves, one lucky nominee would manually sift through picking out the smaller strands smooshed into it. Now Justin had acquired a particular taste for this and his technique became legendary. Legs spread, bending at the hips and one hand behind his back, he'd take a deep breath and lean in. The free hand would then skirmish through the heap pulling loose the fouled straw while the rest of his body held back the gags. One of the strange delights about the deposit was it's temperature. When it looks so much like it should be warm, something about the unexpected coldness adds to the discomfort of it all.<br>
-I actually didn't mind the job too much, but despite offering to take his shift on a number of occasions, Justin was insistent we take turns. I turn Irishman.
+For the next step, the aim of the game was to get all the straw, much of which was showered in piss, out and away and leave nothing but pure premium donkey dung to add to the ever growing pile. The first stage was done with pitch forks, lifting away the majority of the straw, but the final step required some surgical precision. With the use of disposable rubber gloves, one lucky nominee would manually sift through picking out the smaller strands smooshed into it. Now Justin had acquired a particular taste for this and his technique became legendary. Legs spread, bending at the hips and one hand behind his back, he'd take a deep breath and lean in. The free hand would then skirmish through the heap pulling loose the fouled straw while the rest of his body held back the gags. One of the strange delights about the deposit was it's temperature. When it looks so much like it should be warm, something about the unexpected coldness added to the discomfort of it all.<br>
+I actually didn't mind the job too much, but despite offering to take his shift on a number of occasions, Justin was insistent we take turns. A true Irishman.
 
 The final step was making up a fresh bed for Raffles. The instruction given by Rosie on this was to make it comfortable enough that you'd sleep in it. So pitch forks at the ready, me a Justin finished the morning plumping up layers of fresh straw across the swept and cleaned floor. Only the best for Mr Raffles.
 
-There were also various one off jobs that needed tackling. The river had broken its banks in the previous winter and left debris on the hay field, so the first big task, before the grass shot up, was to rake this all up, and along with great trunks of wood, create a huge bonfire. The raking and collecting stage was the classic labour I'd be craving, while satisfaction of setting it ablaze was pure caveman porn. The three of us were very proud of our fire.
+<br>
+Selfie with Raffles hanging his head out the stables (like a good boy)
+<img src="/career-breaking/assets/images/Raffles_selfie.jpeg" class="img-responsive">
 
-Over the first two weeks I got to know Justin and Charly more. They had first met on a guided tour around Amsterdam. Living either side of the Atlantic meant the relationship was slow to flourish and indeed didn't really kick off until a year later when they met again in Panama. Since then they have spent their time roughly splitting their time between Canada, Ireland, and travelling. One of my interests coming into this was the people I'd meet and in particular their reasons for doing it. Justin and Charly's reason was essentially to provide cheap travel so they could be together more. There are many different types of couples and lots of ways that relationships can be built and maintained. It was clear from the start that these two were in the type of relationship I most admire, one that involved a rather healthy helping of laughter. In fact, Charly put it very nicely in one conversation we had about it.<br>
+On top of the routines were various one off jobs that needed tackling. The river had broken its banks in the previous winter and left debris on the hay field, so the first big task, before the grass shot up, was to rake this all up, and along with great trunks of wood, create a huge bonfire. The raking and collecting stage was the classic labour I'd be craving, while satisfaction of setting it ablaze was pure caveman porn. The three of us were very proud of our fire.
+
+<br>
+The bonfire
+<img src="/career-breaking/assets/images/bonfire.jpeg" class="img-responsive">
+
+Over the first two weeks I got to know Justin and Charly more. They had first met on a guided tour in Amsterdam. Living either side of the Atlantic meant the relationship was slow to flourish and indeed didn't really kick off until a year later when they met again in Panama. Since then they had roughly split their time between Canada, Ireland, and travelling. One of my interests coming into this was the people I'd meet and in particular their reasons for doing this kind of work. Justin and Charly's reason was essentially to provide cheap travel so they could be together more. There are many different types of partnerships and lots of ways that relationships can be built and maintained. It was clear from the start that these two were in the type of relationship I most admire, one that involved a rather healthy helping of laughter. In fact, Charly put it very nicely in one conversation we had about it.<br>
 "I'd still hang out with Justin if he wasn't my boyfriend."<br>
 They were genuine friends.
 
