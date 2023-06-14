@@ -80,7 +80,7 @@ Next were the sheep. They had 5, Big Lou, Tino, Dooy, Louy and Elizabeth. They t
 "Do you use the sheep for wool?" I asked, figuring it a silly question.<br>
 "Not really" replied Rosie, "we sheared them once but really they're just to keep the grass down so Raffles doesn't eat too much or get a hoof infection, which they can get if the grass is left to grow too long".<br>
 "Oh", I said. Who the hell is this Donkey? I thought to myself. I looked over my shoulder to see Raffles staring at me deadpan, his jaw crunching in circles on fresh hay while Mike was bent over at his side, busy applying special cream to his penis.<br>
-"I'm the boss" he seemed to say.
+"I'm the boss" he seemed to answer.
 
 <br>
 Raffles
