@@ -65,7 +65,7 @@ We walked up to these stables where Mike was now busy grooming the donkey, and R
 Mike gave him an affectionate scratch and a squeeze around the head, 
 "Are you going to say hello Rafs?".<br>
 Raffles stood quite still, presumably waiting for the groom to continue.<br>
-She explained that sadly they had lost their other donkey Harry a few months prior and Raffles, the poor fellow, had only just started getting back to normal. He had lost a lifelong friend in Harry and apparently if the grieving process is not handled correctly, donkeys can effectively die of a broken heart. Their clear sorrow for loosing Harry, and the careful nurture of Raffles through the process was my first glimpse into the affection Rosie and Mike had for him, in fact all their animals, but Raffles in particular, and as I came to see, he was the beating heart of the whole operation. I just couldn't help feeling that Raffles knew it.
+She explained that sadly they had lost their other donkey Harry a few months prior and Raffles, the poor fellow, had only just started getting back to normal. He had lost a lifelong friend in Harry and apparently if the grieving process is not handled correctly, donkeys can effectively die of a broken heart. Their clear sorrow for loosing Harry, and the careful nurture of Raffles through the process was my first glimpse into the affection Rosie and Mike had for him, in fact all their animals, but Raffles in particular, and as I came to see, he was the beating heart of the whole operation. I just couldn't help but feel that Raffles knew it.
 
 I enquired why they had Raffles (and Harry) in the first place.<br>
 "We bought them to help with coppicing, but it hasn't worked out so we keep him as a pet really, and we just love him"<br>
